@@ -30,7 +30,7 @@ Approximately 30% of the students who stepped foot into high school as freshmen 
  
  High-end sciences are BEST learned at a college where labs and resources are available to teach and hone necessary skills. 
  
- You should go to college if:
+ You should go to college if
  
  * You get an athletic scholarship
  * You are lazy
