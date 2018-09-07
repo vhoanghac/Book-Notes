@@ -1,6 +1,6 @@
 # Your Money & Your Brain - Jason Zweig
 
-### Chapter 1 - Neuroeconomics
+## Chapter 1 - Neuroeconomics
 
 You will never maximize your wealth unless you can optimize your mind.
 
@@ -10,7 +10,7 @@ Our investing brains often drive us to do things that make no logical sense - bu
 
 No matter how much or how little you may think you know about investing, there is always more to learn about the final financial frontier: yourself.
 
-### Chapter 2 - "Thinking" and "feeling"
+## Chapter 2 - "Thinking" and "feeling"
 
 The people who bought these stocks did not analyze the underlying business; instead, they went oin a feeling, a sensation, a hunch.
 
@@ -24,13 +24,13 @@ The most critical factor in the future performance of a mutual fund is the small
 
 `Know when reflex will rule`: When the financial markets are quietly muddling along, it's easier for reflective judgment to prevail over flexive intuitions. But when bull markets are pumping or when bear markets are generating demoralizing losses, the reflexive system gets the upper hand and it becomes urgently important to think twice.
 
-### Chapter 4 - Prediction
+## Chapter 4 - Prediction
 
 People tend to base their predictions of long-term trends on surprisingly short-term samples of data.
 
 As soon as stock seems to conform to a pattern that has made money before, an "I-got-it" effect kicks in, making investors feel sure they know what's coming next. (pg.67)
 
-### Chapter 5 - Confidence
+## Chapter 5 - Confidence
 
 Being overconfident isn't all bad.
 
@@ -47,7 +47,7 @@ It takes so much confidence to admit that you aren't confident.
 
 An investor who has no confidence will never invest at all/ Your goal is to be as sure as possible that you don't think you know more than you really do.
 
-### Chapter 6 - Risk
+## Chapter 6 - Risk
 
 How much risk you can stand depends on what mood you happen to be in.
 
@@ -57,18 +57,18 @@ The main reason investors struggle with how to react to bad news is that they re
 
 The riskiest moment is when you're right, that's when you're in the most trouble, because you tend to overstay the good decisions.
 
-### Chapter 7 - Fear
+## Chapter 7 - Fear
 
 You need to train yourself to turn your investing emotions upside down. Excitement becomes a cue that it's time to consider selling, while fear tells them that it may be time to buy.
 
-### Chapter 8 - Surprise
+## Chapter 8 - Surprise
 
 Every investor should know that it's impossible to predict corporate earnings to the penny. Even so, people keep trying to do just that and end up being surprised again and again.
 
 > "People make mistakes all the time. But the ones we really care about, and the ones we try hardest to avoid in the future, are the ones that have an important negative consequence."
 > - William Gehring
 
-### Chapter 9 - Regret
+## Chapter 9 - Regret
 
 > "When you sell a loser, you don't just take a financial loss; you take a psychological loss from admitting you made a mistake. You are punishing yourself when you sell."
 > - Daniel Kahneman
