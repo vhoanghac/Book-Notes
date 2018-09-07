@@ -1,6 +1,6 @@
 # Fooled By Randomness
 
-## Chapter 1: Solon's Warning.
+## Chapter 1: Solon's Warning
 
 Can we judge the success of people by their raw performance and their personal wealth? Sometimes - but not always.
 
