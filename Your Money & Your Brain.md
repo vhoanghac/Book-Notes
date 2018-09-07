@@ -86,7 +86,7 @@ The more an outcome appears to be the result of your own choice and the more rea
 
 `CHANGE YOUR FRAMES` (pg. 224)
 
-### Chapter 10 - Happiness
+## Chapter 10 - Happiness
 
 They found that how happy people say they *are* each day is not a good way to forecast howlong the relationship will last - but how happy people say they *were* is an excellent predictor of whether they will stay together.
 
