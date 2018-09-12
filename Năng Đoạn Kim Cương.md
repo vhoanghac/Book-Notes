@@ -21,11 +21,11 @@
 5. Dễ nghi ngờ các sự thật quan trọng (lazy doubt about important truths)
 6. Quan điểm sai lạc về thế giới và cuộc sống con người (wrong [worldview](http://definr.com/world%20view))
 ---
-`Làm tổn hại ai đó để có được thứ gì đó cho chính bạn là cách tốt nhất để không có được thứ ấy cho chính bạn.`
+Làm tổn hại ai đó để có được thứ gì đó cho chính bạn là cách tốt nhất để không có được thứ ấy cho chính bạn.
 
-At that moment there came into my mind no conception of a self, nor or of a sentient being, nor of a living being, nor of a person—I had no conception at all. But neither did I not have any conception
+`At that moment there came into my mind no conception of a self, nor or of a sentient being, nor of a living being, nor of a person—I had no conception at all. But neither did I not have any conception`
 
-At that moment I practiced **patience**, keeping my mind on an understanding of the lack of inherent existence within each of the three elements of the act of patience.
+`At that moment I practiced patience, keeping my mind on an understanding of the lack of inherent existence within each of the three elements of the act of patience.`
 
 > Vào thời điểm đó, ta đã tu hạnh **nhẫn nhục** (sự chịu đựng), giữ tâm ta bằng sự hiểu biết rằng không hề có sự tồn tại vốn có nào của một trong ba yếu tố nhẫn nhục.
 
