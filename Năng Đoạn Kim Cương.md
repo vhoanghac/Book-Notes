@@ -27,7 +27,7 @@
 
 > At that moment I practiced patience, keeping my mind on an understanding of the lack of inherent existence within each of the three elements of the act of patience.
 
-Vào thời điểm đó, ta đã tu hạnh **nhẫn nhục** (sự chịu đựng), giữ tâm ta bằng sự hiểu biết rằng không hề có sự tồn tại vốn có nào của một trong ba yếu tố nhẫn nhục.
+Vào thời điểm đó, ta đã tu hạnh **nhẫn nhục** (sự chịu đựng), giữ tâm ta bằng sự hiểu biết rằng không hề có sự hiện hữu nào của một trong ba yếu tố nhẫn nhục.
 
 > Ba yếu tố, hay ba loại nhẫn nhục: Trích từ (https://thuvienhoasen.org/a18426/nhan-nhuc)
 > 1. Thân nhẫn: chịu đựng của bản thân trước nghịch cảnh không vừa ý như nóng, lạnh, đói khát.
