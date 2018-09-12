@@ -14,7 +14,7 @@
 
 1. Thích cái gì đó một cách sai lầm.
 2. Không thích điều gì đó một cách sai lầm.
-3. [Kiêu mạn](https://thuvienhoasen.org/a7001/chuong-4-kieu-man-la-gi) (Phật học). *Từ gốc: pride (kiểu ngạo)* 
+3. [Kiêu mạn](https://thuvienhoasen.org/a7001/chuong-4-kieu-man-la-gi) (Phật học). *Từ gốc: pride (kiêu ngạo)* 
    
    **Kiêu** có liên hệ với những cái mình đang có tạm thời, còn **mạn** có liên hệ tới những gì mình không có mà tưởng rằng mình có.
 4. Không hiểu các sự việc vận hành như thế nào.
