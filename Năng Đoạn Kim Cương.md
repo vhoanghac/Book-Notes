@@ -39,8 +39,6 @@ Vào thời điểm đó, ta đã tu hạnh **nhẫn nhục** (sự chịu đự
 
 Nguyên gốc "self" (tôi, cái tôi) - tác giả dịch là "tự ngã". Và trong khi đó "me" - tác giả dịch là cái "tôi".
 
-*Phần này khiến tôi lúng túng và phải đi Google. Và càng tìm hiểu tôi càng thấy khó hiểu khi mỗi nơi giải thích một khác, một số thì lại uốn lượn ý nghĩa nhưng lại vô tình làm nó phức tạp hơn bằng các câu chữ kinh điển Phật giáo. Càng giải thích dài dòng thì rốt cuộc lại chẳng giải thích gì. Tôi mơ hồ suy nghĩ liệu cái đó có thực sự có không hay là người ta chỉ bịa ra để làm tăng độ khó khăn cho cuộc sống!?.*
-
 Nguyên gốc "no-self" - tác giả dịch là "vô ngã"
 
-*Thật sự mà nói thì, tôi không biết phải làm gì với "self" và "no-self" trong tiếng Anh.*
+Nguyên gốc "Impermanent" - tác giả dịch là "vô thường". Tôi lại không hiểu sao lại dịch là vô thường. "Vô" theo Hán Nôm là "Không". Còn "thường" thì là "Thường xuyên"? Tóm lại "Vô Thường" ý ở đây là "Không Thường Xuyên?" Nhưng nếu dịch "Impermanent" thì nó có nghĩa là "Không bền". Nó sát với ý nghĩa của "Vô Thường" hơn. Nhưng mà vì lý do nào đó mà người ta dùng "Vô Thường", chắc có lẽ bởi nó nghe hay hơn là "Không Bền".
