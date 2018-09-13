@@ -23,6 +23,10 @@
 ---
 **Làm tổn hại ai đó để có được thứ gì đó cho chính bạn là cách tốt nhất để không có được thứ ấy cho chính bạn.**
 
+*Bản dịch bắt đầu rắc rối từ đây. Nếu dịch từ tiếng Anh gốc sang tiếng Việt đơn giản thì sẽ có nhiều đoạn dễ hiểu hơn nhưng một phần tác giả sử dụng các từ ngữ trong Phật giáo và các kiểu câu như trong kinh, một phần khác thì các câu đã dịch sang tiếng Việt lại lủng củng, khó đọc khiến việc tiếp thu kiến thức đã khó nay lại còn khó hơn. Đây là lí do tại sao tôi ít khi đọc sách tiếng Việt bởi vì nó làm tôi khó đọc. Nhưng quyển sách này thì khác, nếu không có tiếng Việt chắc tôi có đi tìm hiểu các từ ngữ Phật giáo cũng không thể nào mò ra ý nghĩa. Tôi có thắc mắc rằng, liệu những người chưa bao giờ đọc kinh Phật hay có tư tưởng nghiên cứu Phật giáo trước giờ có tiêu hóa nổi cuốn sách này không?*
+
+`Nếu có ai không hiểu thì tôi nghĩ nên skip từ đoạn "Sau đây là cách miêu tả..." (trang 224) đến "... ý nghĩa thực sự của chúng." (trang 226)`
+
 > At that moment I practiced patience, keeping my mind on an understanding of the lack of inherent existence within each of the three elements of the act of patience.
 
 Vào thời điểm đó, ta đã tu hạnh **nhẫn nhục** (sự chịu đựng), giữ tâm ta bằng sự hiểu biết rằng không hề có sự hiện hữu nào của một trong ba yếu tố nhẫn nhục.
@@ -32,10 +36,6 @@ Vào thời điểm đó, ta đã tu hạnh **nhẫn nhục** (sự chịu đự
 > 2. **Khẩu nhẫn:** sự im lặng của miệng trước các nghịch cảnh không vừa ý
 > 3. **Ý nhẫn:** nhẫn nhục của tâm ý, không có ý nghĩ than trách trước cảnh bị hành hạ, vu oan...
 ---
-
-*Bản dịch bắt đầu rắc rối từ đây. Nếu dịch từ tiếng Anh gốc sang tiếng Việt đơn giản thì sẽ có nhiều đoạn dễ hiểu hơn nhưng một phần tác giả sử dụng các từ ngữ trong Phật giáo và các kiểu câu như trong kinh, một phần khác thì các câu đã dịch sang tiếng Việt lại lủng củng, khó đọc khiến việc tiếp thu kiến thức đã khó nay lại còn khó hơn. Đây là lí do tại sao tôi ít khi đọc sách tiếng Việt bởi vì nó làm tôi khó đọc. Nhưng quyển sách này thì khác, nếu không có tiếng Việt chắc tôi có đi tìm hiểu các từ ngữ Phật giáo cũng không thể nào mò ra ý nghĩa. Tôi có thắc mắc rằng, liệu những người chưa bao giờ đọc kinh Phật hay có tư tưởng nghiên cứu Phật giáo trước giờ có tiêu hóa nổi cuốn sách này không?*
-
-`Nếu có ai không hiểu thì tôi nghĩ nên skip từ đoạn "Sau đây là cách miêu tả..." (trang 224) đến "... ý nghĩa thực sự của chúng." (trang 226)`
 
 Nguyên gốc "self" (tôi, cái tôi) - tác giả dịch là "tự ngã". Và trong khi đó "me" - tác giả dịch là cái "tôi".
 
