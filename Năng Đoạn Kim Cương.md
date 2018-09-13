@@ -35,5 +35,12 @@ Vào thời điểm đó, ta đã tu hạnh **nhẫn nhục** (sự chịu đự
 
 *Bản dịch bắt đầu rắc rối từ đây. Nếu dịch từ tiếng Anh gốc sang tiếng Việt đơn giản thì sẽ có nhiều đoạn dễ hiểu hơn nhưng một phần tác giả sử dụng các từ ngữ trong Phật giáo và các kiểu câu như trong kinh, một phần khác thì các câu đã dịch sang tiếng Việt lại lủng củng, khó đọc khiến việc tiếp thu kiến thức đã khó nay lại còn khó hơn. Đây là lí do tại sao tôi ít khi đọc sách tiếng Việt bởi vì nó làm tôi khó đọc. Nhưng quyển sách này thì khác, nếu không có tiếng Việt chắc tôi có đi tìm hiểu các từ ngữ Phật giáo cũng không thể nào mò ra ý nghĩa. Tôi có thắc mắc rằng, liệu những người chưa bao giờ đọc kinh Phật hay có tư tưởng nghiên cứu Phật giáo trước giờ có tiêu hóa nổi cuốn sách này không?*
 
-Nguyên gốc "self" - tác giả dịch là "tự ngã".
+`Nếu có ai không hiểu thì tôi nghĩ nên skip từ đoạn "Sau đây là cách miêu tả..." (trang 224) đến "... ý nghĩa thực sự của chúng." (trang 226)`
+
+Nguyên gốc "self" (tôi, cái tôi) - tác giả dịch là "tự ngã". Và trong khi đó "me" - tác giả dịch là cái "tôi".
+
+*Phần này khiến tôi lúng túng và phải đi Google. Và càng tìm hiểu tôi càng thấy khó hiểu khi mỗi nơi giải thích một khác, một số thì lại uốn lượn ý nghĩa nhưng lại vô tình làm nó phức tạp hơn bằng các câu chữ kinh điển Phật giáo. Càng giải thích dài dòng thì rốt cuộc lại chẳng giải thích gì. Tôi mơ hồ suy nghĩ liệu cái đó có thực sự có không hay là người ta chỉ bịa ra để làm tăng độ khó khăn cho cuộc sống!?.*
+
 Nguyên gốc "no-self" - tác giả dịch là "vô ngã"
+
+*Thật sự mà nói thì, tôi không biết phải làm gì với "self" và "no-self" trong tiếng Anh.*
