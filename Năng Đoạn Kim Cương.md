@@ -2,15 +2,15 @@
 
 *Có một số chuyện về quá khứ của tác giả không được hay cho lắm, bản thân tác giả cũng đã phá lời thề: cưới một người trong bí mật sau đó ly hôn... và vài cái bi kịch khác liên quan tới hoạt động tín ngưỡng*
 
-### Mục tiêu 1
+## Mục tiêu 1
 -skip-
 
-### Mục tiêu 2
+## Mục tiêu 2
 
 **Điều tốt nhất mà bạn có thể làm để giữ cho thân thể bạn khỏe mạnh và trẻ trung là chăm sóc tâm của bạn.**
 
 ---
-6 loại phiền não *("thảm trạng tâm linh")*:
+**6 loại phiền não *("thảm trạng tâm linh")*:**
 
 1. Thích cái gì đó một cách sai lầm.
 2. Không thích điều gì đó một cách sai lầm.
@@ -33,5 +33,6 @@ Vào thời điểm đó, ta đã tu hạnh **nhẫn nhục** (sự chịu đự
 > 1. Thân nhẫn: chịu đựng của bản thân trước nghịch cảnh không vừa ý như nóng, lạnh, đói khát.
 > 2. Khẩu nhẫn: sự im lặng của miệng trước các nghịch cảnh không vừa ý
 > 3. Ý nhẫn: nhẫn nhục của tâm ý, không có ý nghĩ than trách trước cảnh bị hành hạ, vu oan...
+---
 
-
+*Bản dịch bắt đầu rắc rối từ đây. Bởi vì, dịch từ tiếng Anh sang tiếng Việt thì có thể hiểu đơn giản nhưng tác giả lại thay đổi bắt các từ ngữ trong kinh Phật và các kiểu câu như trong kinh khiến việc tiếp thu kiến thức đã khó nay lại còn khó hơn. Đây cũng là một trong những vấn đề mà tôi quan ngại khi đọc sách Tiếng Việt bởi vì đôi lúc người dịch còn làm nó khó hiểu hơn khi là đọc nguyên bản*
