@@ -50,17 +50,17 @@ Nguyên gốc "pride" - dịch là "kiêu mạn".
 *Lại một lần nữa quyết định không đọc sách tiếng Việt dịch của tôi đã được chứng minh là đúng.*
 
 > “What in the world is going on?” he starts.
-
+>
 > “What do you mean?”
-
+>
 > “What’s with all the diamonds? Do you know what you’re doing to the cash flow? What are you, crazy?”
 
 *Được dịch thành:*
 
 >"Chuyện gì xảy ra trên thế giới thế?"
-
+>
 > "Ông muốn nói gì chứ?"
-
+>
 > "Làm gì với tất cả số kim cương này đây? Anh có biết rằng mình đang gây trở ngại cho lực lượng tiền mặt không? Anh làm sao vậy, người anh khùng?"
 ---
 
