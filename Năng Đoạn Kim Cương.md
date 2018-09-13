@@ -33,4 +33,7 @@ Vào thời điểm đó, ta đã tu hạnh **nhẫn nhục** (sự chịu đự
 > 3. **Ý nhẫn:** nhẫn nhục của tâm ý, không có ý nghĩ than trách trước cảnh bị hành hạ, vu oan...
 ---
 
-*Bản dịch bắt đầu rắc rối từ đây. Bởi vì, dịch từ tiếng Anh sang tiếng Việt thì có thể hiểu đơn giản nhưng tác giả lại thay đổi bắt các từ ngữ trong kinh Phật và các kiểu câu như trong kinh khiến việc tiếp thu kiến thức đã khó nay lại còn khó hơn. Đây cũng là một trong những vấn đề mà tôi quan ngại khi đọc sách Tiếng Việt bởi vì đôi lúc người dịch còn làm nó khó hiểu hơn khi là đọc nguyên bản*
+*Bản dịch bắt đầu rắc rối từ đây. Nếu dịch từ tiếng Anh gốc sang tiếng Việt đơn giản thì sẽ có nhiều đoạn dễ hiểu hơn nhưng một phần tác giả sử dụng các từ ngữ trong Phật giáo và các kiểu câu như trong kinh, một phần khác thì các câu đã dịch sang tiếng Việt lại lủng củng, khó đọc khiến việc tiếp thu kiến thức đã khó nay lại còn khó hơn. Đây là lí do tại sao tôi ít khi đọc sách tiếng Việt bởi vì nó làm tôi khó đọc. Nhưng quyển sách này thì khác, nếu không có tiếng Việt chắc tôi có đi tìm hiểu các từ ngữ Phật giáo cũng không thể nào mò ra ý nghĩa. Tôi có thắc mắc rằng, liệu những người chưa bao giờ đọc kinh Phật hay có tư tưởng nghiên cứu Phật giáo trước giờ có tiêu hóa nổi cuốn sách này không?*
+
+Nguyên gốc "self" - tác giả dịch là "tự ngã".
+Nguyên gốc "no-self" - tác giả dịch là "vô ngã"
