@@ -65,6 +65,8 @@ Nguyên gốc "pride" - dịch là "kiêu mạn".
 
 ### Tổng kết chương 10: Mỗi năm mỗi sáng suốt và khỏe mạnh hơn.
 
+**Tránh những cảm xúc tiêu cực không hề giúp ích gì trong việc xây dựng tương lai đã vậy còn có thể làm sức khỏe bị ảnh hưởng**
+
 A single moment of anger, a single moment of burning this kind of negative imprint into your mind, can lead to days or weeks or even longer periods in the future when you have to experience the result of this imprint in the world around you.
 
 “No-self” means that your boss doesn’t have any self-nature—no nature of his own, no nature coming from his own side, no nature that he was born with—of being a screaming unpleasant person, even at this moment. So **“no-self” means that whatever you see in him is coming from you, not from him.**
@@ -76,3 +78,8 @@ A single moment of anger, a single moment of burning this kind of negative impri
 Instead of arguing about whose fault it was that the diamonds were bought, instead of fighting about who it was that messed up the cash flow, **turn your mind immediately to the solution of the present moment.** Because you fought the anger off even before it got fully into your mind, you’re able immediately to turn all your energy to solving the problem. Your mind is clear. Your face is calm. Your heart is beating normally, your breath is steady.
 
 You may be able to calm your own mind immediately and be ready to deal with a problem with cool rationality, but this doesn’t at all mean that everyone else in the room will calm down. Nor does it mean that the solution you come up with in your cooled-down state of mind is necessarily going to work.
+
+## Chương 11:
+
+Cần phải có một đời sống thứ hai - một niềm say mê tha thiết thứ hai.
+
