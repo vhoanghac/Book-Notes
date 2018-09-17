@@ -33,7 +33,6 @@ Vào thời điểm đó, ta đã tu hạnh **nhẫn nhục** (sự chịu đự
 > 1. **Thân nhẫn:** chịu đựng của bản thân trước nghịch cảnh không vừa ý như nóng, lạnh, đói khát.
 > 2. **Khẩu nhẫn:** sự im lặng của miệng trước các nghịch cảnh không vừa ý
 > 3. **Ý nhẫn:** nhẫn nhục của tâm ý, không có ý nghĩ than trách trước cảnh bị hành hạ, vu oan...
----
 
 Nguyên gốc "self" (tôi, cái tôi) - dịch là "tự ngã". Và trong khi đó "me" - dịch là cái "tôi".
 
@@ -63,6 +62,8 @@ Nguyên gốc "pride" - dịch là "kiêu mạn".
 >
 > "Làm gì với tất cả số kim cương này đây? Anh có biết rằng mình đang gây trở ngại cho lực lượng tiền mặt không? Anh làm sao vậy, người anh khùng?"
 ---
+
+### Tổng kết chương 10: Mỗi năm mỗi sáng suốt và khỏe mạnh hơn.
 
 A single moment of anger, a single moment of burning this kind of negative imprint into your mind, can lead to days or weeks or even longer periods in the future when you have to experience the result of this imprint in the world around you.
 
