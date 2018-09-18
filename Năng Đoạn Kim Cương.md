@@ -79,7 +79,10 @@ Instead of arguing about whose fault it was that the diamonds were bought, inste
 
 You may be able to calm your own mind immediately and be ready to deal with a problem with cool rationality, but this doesn’t at all mean that everyone else in the room will calm down. Nor does it mean that the solution you come up with in your cooled-down state of mind is necessarily going to work.
 
-## Chương 11:
+### Chương 12:  Tính không của các vấn đề
 
-Cần phải có một đời sống thứ hai - một niềm say mê tha thiết thứ hai.
+Mọi sự vật hiện hữu trên đời đều là "không". Có nghĩa là không một vật nào là tốt hay xấu từ chính phía nó; phương thuốc của một người là thuốc độc với người khác. Một vật *trở thành* tốt hay xấu tùy theo nhận thức của bạn.
 
+Problems are not problems from their own side; rather, there is something in your mind making you see the problem as a problem. Every problem can be turned into an opportunity, because no problem is a problem in and of itself.
+
+## Mục tiêu 3
