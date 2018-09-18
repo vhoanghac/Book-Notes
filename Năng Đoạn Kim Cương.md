@@ -85,4 +85,6 @@ Mọi sự vật hiện hữu trên đời đều là "không". Có nghĩa là k
 
 Problems are not problems from their own side; rather, there is something in your mind making you see the problem as a problem. Every problem can be turned into an opportunity, because no problem is a problem in and of itself.
 
-## Mục tiêu 3
+## Mục tiêu 3: Nhìn lại và biết rằng thế là đủ
+
+
