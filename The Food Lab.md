@@ -27,3 +27,8 @@ How do you gauge the heat distribution performance of a pan? The easiest way is 
 - The pan doesn’t cool down when you add food to it. The edges of the pan will never get hot. To heat a cast-iron pan effectively, you need a burner equal in size to the pan.
 - You can’t cook overly acidic foods in it: Acidic foods will pick up flavor and color from the iron, turning them dingy and metallic-tasting. This means that until a very good layer of seasoning has developed, even quick wine-based pan sauces are out of the question, as are acidic recipes like tomato sauce.
 ---
+**Steek Wok**:
+- Stainless steel woks are a waste of money.
+- Your best bet is a wok with a 4- to 5-inch-wide flattened area at the bottom.
+- Avoid nonstick woks like the plague. Most nonstick coatings cannot handle the high heat necessary for a proper stir-fry.
+---
