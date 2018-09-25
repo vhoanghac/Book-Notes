@@ -26,7 +26,4 @@ How do you gauge the heat distribution performance of a pan? The easiest way is 
 - My cast-iron pans give me golden brown fried chicken, sizzling bacon, corn bread, apple pies, well-charred hash, perfectly seared steaks, bubbly pizzas, and crisp dumplings. 
 - The pan doesn’t cool down when you add food to it. The edges of the pan will never get hot. To heat a cast-iron pan effectively, you need a burner equal in size to the pan.
 - You can’t cook overly acidic foods in it: Acidic foods will pick up flavor and color from the iron, turning them dingy and metallic-tasting. This means that until a very good layer of seasoning has developed, even quick wine-based pan sauces are out of the question, as are acidic recipes like tomato sauce.
-
-#### How to season and maintain cast-iron:
-
 ---
