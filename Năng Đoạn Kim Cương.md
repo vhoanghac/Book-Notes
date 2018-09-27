@@ -84,7 +84,3 @@ You may be able to calm your own mind immediately and be ready to deal with a pr
 Mọi sự vật hiện hữu trên đời đều là "không". Có nghĩa là không một vật nào là tốt hay xấu từ chính phía nó; phương thuốc của một người là thuốc độc với người khác. Một vật *trở thành* tốt hay xấu tùy theo nhận thức của bạn.
 
 Problems are not problems from their own side; rather, there is something in your mind making you see the problem as a problem. Every problem can be turned into an opportunity, because no problem is a problem in and of itself.
-
-## Mục tiêu 3: Nhìn lại và biết rằng thế là đủ
-
-
