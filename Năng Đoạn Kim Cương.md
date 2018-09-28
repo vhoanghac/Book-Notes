@@ -3,7 +3,20 @@
 *Có một số chuyện về quá khứ của tác giả không được hay cho lắm, bản thân tác giả cũng đã phá lời thề: cưới một người trong bí mật sau đó ly hôn... và vài cái bi kịch khác liên quan tới hoạt động tín ngưỡng*
 
 ## Mục tiêu 1
--skip-
+
+1. Đừng bao giờ kiếm tiền bằng bất cứ một hành động sai trái nào. Số tiền mà bạn chia sẻ với những người xung quanh không phải là điều xác định sức mạnh của "dấu ấn", mà đó là sự sẵn lòng chia sẻ bất cứ thứu gì mà bạn đã làm ra.
+2. Đừng bao giờ kiêu mạn, hạ mình xuống ngang tầm với mọi người.
+3. Đừng bao giờ đố kỵ với người khác về kết quả mà họ đã nỗ lực để có được; đừng so sánh mình với người khác, hãy hưởng thụ những gì bạn có.
+4. Chúng ta hình như có thói quen lấy làm thích thú trước những nỗi thống khổ của mọi người xung quanh, ta cảm thấy thỏa mãn hay tự hào về nỗi buồn bực của người ấy. Hãy cố thông cảm với bất cứ ai đang gặp khó khăn, dù đó là đối thủ của bạn. 
+5. Thoát ra khỏi thói quen mong chờ được công nhận hay khen ngợi - hãy tập thói quen tận tụy tìm kiếm cơ hội để tỏ rõ sự công nhận và khen ngợi những người xung quanh bạn. 
+6. Phật giáo đánh giá cao sự im lặng.
+
+**Mâu thuẫn:**
+
+1. Những người xung quanh bạn không đến giúp bạn khi bạn cần nhất.
+> Nếu không nói với ai biết về nỗi khổ mình đang gánh chịu thì chả ai biết mà tới giúp. Chứ đây không phải là kết quả của việc vui mừng trước những khó khăn của người khác.
+
+
 
 ## Mục tiêu 2
 
