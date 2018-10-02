@@ -44,3 +44,4 @@ The enemies of oil are heat and light, which means that the way most people stor
 3. Oil, peanut (for deep-frying)
 
 ## Eggs, Dairy and the Science of breakfast 
+If we drop the eggs directly into boiling water, the exterior heats up much faster than the interior, so that by the time the very center of the yolk reaches 170°F, the white and outer layers of yolk are hopelessly overcooked.
