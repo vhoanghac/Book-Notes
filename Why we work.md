@@ -1,0 +1,20 @@
+# Why we work
+
+#### The Crucial Question
+
+Satisfied workers are engaged by their work. They lose themselves in it. They do their work because they feel that they are in charge. These people are satisfied with their work because they find what they do meaningful.
+
+We wouldn’t work if we didn’t get paid, but that’s not at the core of why we do what we do. And in general, we think that material rewards are a pretty bad reason for working. Indeed, when we say of someone that “he’s in it for the money,” **we are not merely being descriptive; we’re passing judgment.**
+
+## When Work Is Good
+
+Confronted with evidence that so few people in the world get satisfaction from their work, we need to ask why. 
+1. Many of us believe that only certain kinds of jobs permit people to find meaning, engagement, discretion, and autonomy, and opportunities to learn and grow.
+2. We might take the view that pretty much every job has the potential to offer people satisfying work. 
+
+### Cleaning Hospitals
+
+What Luke sought in his work was shaped by the aims *— what Aristotle would call the telos —* of his organization. The telos of the hospital—promoting health, curing illness, relieving suffering—was embedded in Luke’s approach to his job
+
+These custodians shaped their jobs with the central purpose of the hospital in mind.
+
