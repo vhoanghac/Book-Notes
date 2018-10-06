@@ -52,3 +52,17 @@ So, when Luke was confronted by the angry father and he had to decide what to do
 Depends on *characteristics of the person*. That is, differences in the way people approach their work are explained by the attitudes they bring to their work—who they are, not what the work is. 
 
 But the kind of work one does is also a major factor. It is easier to find meaning and engagement in some kinds of work than in others.
+
+### Making Carpet
+
+You don’t need to be working for an organization that saves lives to find meaning and purpose in what you do. You just need to be doing work that makes people’s lives better.
+
+### Cutting Hair
+
+To have a job that you are happy—even eager—to do.
+- It helps if the work itself is challenging, varied, and engaging.
+- It helps if the work gives you the **chance to use your skills and develop more skills.** 
+- It helps if you **have discretion over how you do your job.**
+- It helps if you feel that you are part of a group, with fellow workers you respect. 
+- And most important, it helps if **the work is aimed at a goal that is valuable and gives the work you do meaning and purpose.**
+
