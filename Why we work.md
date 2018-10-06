@@ -1,6 +1,6 @@
 # Why we work
 
-#### The Crucial Question
+### The Crucial Question
 
 Satisfied workers are engaged by their work. They lose themselves in it. They do their work because they feel that they are in charge. These people are satisfied with their work because they find what they do meaningful.
 
