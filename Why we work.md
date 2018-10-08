@@ -41,11 +41,11 @@ So, when Luke was confronted by the angry father and he had to decide what to do
 ---
 **Amy Wrzesniewski calls work that has such characteristics a “calling” and distinguishes it from work that is a “job” or a “career.”**
 
-- People who see their work as a “job” enjoy little discretion and experience minimal engagement or meaning. People with jobs see work as a necessity of life, they work for pay, they would switch jobs if given the chance to earn more money, they can’t wait to retire, and they would not encourage their friends or children to follow in their footsteps. They are the embodiment of Adam Smith’s ideas about people’s attitudes toward work.
+- People who see their work as a **“job”** enjoy little discretion and experience minimal engagement or meaning. People with jobs see work as a necessity of life, they work for pay, they would switch jobs if given the chance to earn more money, they can’t wait to retire, and they would not encourage their friends or children to follow in their footsteps. They are the embodiment of Adam Smith’s ideas about people’s attitudes toward work.
 
-- People who see their work as a “career” generally enjoy more discretion and are more engaged. They may even enjoy what they do. But their focus is on advancement. They see themselves as following a trajectory that leads to promotion, higher salary, and better work
+- People who see their work as a **“career”** generally enjoy more discretion and are more engaged. They may even enjoy what they do. But their focus is on advancement. They see themselves as following a trajectory that leads to promotion, higher salary, and better work
 
-- "calling": work is one of the most important parts of life, they are pleased to be doing it, it is a vital part of their identity, they believe their work makes the world a better place, and they would encourage their friends and children to do this kind of work. People whose work is a calling get great satisfaction from what they do.
+- **"calling"**: work is one of the most important parts of life, they are pleased to be doing it, it is a vital part of their identity, they believe their work makes the world a better place, and they would encourage their friends and children to do this kind of work. People whose work is a calling get great satisfaction from what they do.*
 ---
 
 **What, then, determines how people think about their work?**
