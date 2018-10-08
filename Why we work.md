@@ -6,7 +6,7 @@ Satisfied workers are engaged by their work. They lose themselves in it. They do
 
 We wouldn’t work if we didn’t get paid, but that’s not at the core of why we do what we do. And in general, we think that material rewards are a pretty bad reason for working. Indeed, when we say of someone that “he’s in it for the money,” **we are not merely being descriptive; we’re passing judgment.**
 
-## When Work Is Good
+## Chapter 2: When Work Is Good
 
 Confronted with evidence that so few people in the world get satisfaction from their work, we need to ask why. 
 1. Many of us believe that only certain kinds of jobs permit people to find meaning, engagement, discretion, and autonomy, and opportunities to learn and grow.
