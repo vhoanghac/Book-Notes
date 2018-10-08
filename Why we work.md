@@ -14,15 +14,15 @@ Confronted with evidence that so few people in the world get satisfaction from t
 
 ### Cleaning Hospitals
 
-> Luke: Yeah, I cleaned it so that he could see me clean it . . . I can understand how he could be. It was like six months that his son was here. He’d be a little frustrated, and so I cleaned it again. But I wasn’t angry with him. I guess I could understand.
+> *Luke: Yeah, I cleaned it so that he could see me clean it . . . I can understand how he could be. It was like six months that his son was here. He’d be a little frustrated, and so I cleaned it again. But I wasn’t angry with him. I guess I could understand.*
 
 What Luke sought in his work was shaped by the aims *—what Aristotle would call the telos—* of his organization. The telos of the hospital *—promoting health, curing illness, relieving suffering—* was embedded in Luke’s approach to his job. 
 
 **They understood and internalized these aims in spite of their official job description, not because of it.**
 
-> Ben, another custodian, told the researchers how he stopped mopping the hallway floor because a patient who was recovering from major surgery was out of his bed getting a little much-needed exercise by walking slowly up and down the hall. 
+> *Ben, another custodian, told the researchers how he stopped mopping the hallway floor because a patient who was recovering from major surgery was out of his bed getting a little much-needed exercise by walking slowly up and down the hall. *
 
-> Corey told them about how he ignored his supervisor’s admonitions and refrained from vacuuming the visitors’ lounge while some family members, who were there all day, every day, happened to be napping.
+> *Corey told them about how he ignored his supervisor’s admonitions and refrained from vacuuming the visitors’ lounge while some family members, who were there all day, every day, happened to be napping.*
 
 These custodians shaped their jobs with the central purpose of the hospital in mind.
 
@@ -35,7 +35,7 @@ So, when Luke was confronted by the angry father and he had to decide what to do
 2. Empathy, good listening, and perceptiveness.
 3. Luke believed in the purposes of the enterprise of which he was a part. A belief like this helped make his work meaningful.
 
-> "To be satisfied with our work, we typically need a belief in the purpose of what we do".
+> *"To be satisfied with our work, we typically need a belief in the purpose of what we do".*
 > - **Peter Warr, professor of work psychology**
 
 ---
@@ -75,5 +75,5 @@ the situation worse, by reducing the effectiveness (and the satisfaction) of the
 
 When people find engagement and meaning in the work they do, it makes them happy to go to work. When people are happy, they work better and they work smarter.
 
-> "When people are in states of positive emotion, they think expansively and creatively."
+> *"When people are in states of positive emotion, they think expansively and creatively."*
 > - Barbara Fredrickson, psychologist.
