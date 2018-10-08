@@ -20,7 +20,7 @@ What Luke sought in his work was shaped by the aims *—what Aristotle would cal
 
 **They understood and internalized these aims in spite of their official job description, not because of it.**
 
-> *Ben, another custodian, told the researchers how he stopped mopping the hallway floor because a patient who was recovering from major surgery was out of his bed getting a little much-needed exercise by walking slowly up and down the hall. *
+> *Ben, another custodian, told the researchers how he stopped mopping the hallway floor because a patient who was recovering from major surgery was out of his bed getting a little much-needed exercise by walking slowly up and down the hall.*
 
 > *Corey told them about how he ignored his supervisor’s admonitions and refrained from vacuuming the visitors’ lounge while some family members, who were there all day, every day, happened to be napping.*
 
