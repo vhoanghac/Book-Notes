@@ -76,4 +76,4 @@ the situation worse, by reducing the effectiveness (and the satisfaction) of the
 When people find engagement and meaning in the work they do, it makes them happy to go to work. When people are happy, they work better and they work smarter.
 
 > *"When people are in states of positive emotion, they think expansively and creatively."*
-> - Barbara Fredrickson, psychologist.
+> - **Barbara Fredrickson, psychologist.**
