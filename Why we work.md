@@ -66,3 +66,14 @@ To have a job that you are happy—even eager—to do.
 - It helps if you feel that you are part of a group, with fellow workers you respect. 
 - And most important, it helps if **the work is aimed at a goal that is valuable and gives the work you do meaning and purpose.**
 
+### Turning a "Vicious Cycle" into a "Virtuous Cycle"
+
+The knee-jerk response to competitive pressure —cutting staff, speeding up workers, monitoring performance closely— makes
+the situation worse, by reducing the effectiveness (and the satisfaction) of the workforce.
+
+**aying attention to enhancing the character of work creates what we might call a virtuous cycle.**
+
+When people find engagement and meaning in the work they do, it makes them happy to go to work. When people are happy, they work better and they work smarter.
+
+> "When people are in states of positive emotion, they think expansively and creatively."
+> - Barbara Fredrickson, psychologist.
