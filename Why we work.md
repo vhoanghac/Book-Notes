@@ -16,7 +16,7 @@ Confronted with evidence that so few people in the world get satisfaction from t
 
 > *Luke: Yeah, I cleaned it so that he could see me clean it . . . I can understand how he could be. It was like six months that his son was here. He’d be a little frustrated, and so I cleaned it again. But I wasn’t angry with him. I guess I could understand.*
 
-What Luke sought in his work was shaped by the aims *—what Aristotle would call the telos—* of his organization. The telos of the hospital *—promoting health, curing illness, relieving suffering—* was embedded in Luke’s approach to his job. 
+What Luke sought in his work was shaped by the aims —what Aristotle would call the telos— of his organization. `The telos of the hospital —promoting health, curing illness, relieving suffering—` was embedded in Luke’s approach to his job. 
 
 **They understood and internalized these aims in spite of their official job description, not because of it.**
 
