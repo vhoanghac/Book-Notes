@@ -71,7 +71,7 @@ To have a job that you are happy—even eager—to do.
 The knee-jerk response to competitive pressure —cutting staff, speeding up workers, monitoring performance closely— makes
 the situation worse, by reducing the effectiveness (and the satisfaction) of the workforce.
 
-**aying attention to enhancing the character of work creates what we might call a virtuous cycle.**
+**Paying attention to enhancing the character of work creates what we might call a virtuous cycle.**
 
 When people find engagement and meaning in the work they do, it makes them happy to go to work. When people are happy, they work better and they work smarter.
 
