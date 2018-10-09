@@ -72,3 +72,5 @@ When people find engagement and meaning in the work they do, it makes them happy
 
 > *"When people are in states of positive emotion, they think expansively and creatively."*
 > - **Barbara Fredrickson, psychologist.**
+
+Virtually every job that people do can be made meaningful by focusing on the ways in which it improves the lives of customers, as long as it’s done right and done well.
