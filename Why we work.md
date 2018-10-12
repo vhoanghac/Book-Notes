@@ -74,3 +74,6 @@ When people find engagement and meaning in the work they do, it makes them happy
 > - **Barbara Fredrickson, psychologist.**
 
 Virtually every job that people do can be made meaningful by focusing on the ways in which it improves the lives of customers, as long as it’s done right and done well.
+
+## Chapter 3: How Good Work Goes Bad: Rules and Incentives over Integrity
+
