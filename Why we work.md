@@ -77,3 +77,12 @@ Virtually every job that people do can be made meaningful by focusing on the way
 
 ## Chapter 3: How Good Work Goes Bad: Rules and Incentives over Integrity
 
+**People are lazy by nature.** Pay is what would motivate them to work accurately and quickly.
+
+Rigid curriculum, become common in many school systems. Teacher's annual evaluations, and even pay, are based on their students’ performance on standardized tests, and the scripted curricula are written to prepare students to pass these tests.
+
+The most tragic consequence of this de-skilling is that it will either drive the energy, engagement, and enthusiasm out of good teachers, or it will drive these good teachers out of education.
+
+But there is another aspect of many modern work settings that may be even more destructive to good work than routinization and excessive supervision. That is the **reliance on material incentives as the principalmotivator of employees.**
+
+Carefully crafted incentive schemes, designed to ensure top performance, **can often produce the opposite—competition among employees, and efforts to game the system and look good on whatever metric is being used to assign pay and bonuses without actually producing the underlying results that the metric is meant to assess.**
