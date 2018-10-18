@@ -86,4 +86,4 @@ The solution to incomplete contracts (some of the job duties are specified expli
 
 > Teachers impart knowledge, but the best way to reach each child is left for them to judge.
 
-We may tell ourselves that all we’re doing with our incentives is taking advantage of what we know about human nature. That’s what Adam Smith would have said. But in fact, what we’re doing is changing human nature. And we’re not merely changing it; we’re impoverishing it.
+We may tell ourselves that all we’re doing with our incentives is taking advantage of what we know about human nature. That’s what Adam Smith would have said. But **in fact, what we’re doing is changing human nature. And we’re not merely changing it; we’re impoverishing it.**
