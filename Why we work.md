@@ -87,8 +87,6 @@ Carefully crafted incentive schemes, designed to ensure top performance, **can o
 
 It seems that no matter how many times in the past we have gotten evidence that material incentives failed to produce the results we sought from practicing professionals, we turn to them again the next time we want to improve quality. System designers repeatedly fail to appreciate that when material incentives are put front and center, other values essential to motivating employees get crowded out. And it is these other values that are responsible for excellent performance.
 
-**The little lies on the time sheets will create the habit of little lies.**
-
 The fine allows parents to reframe their behavior as an exchange of a fee (the “fine”) for a “service” (fifteen minutes of extra care).
 
 The offer of money leads them to ask, “Is this worth my time and effort?”.
