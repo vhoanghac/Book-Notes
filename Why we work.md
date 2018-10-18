@@ -89,4 +89,10 @@ When we lose confidence that people have the will to do the right thing, and we 
 
 The solution to incomplete contracts (some of the job duties are specified explicitly, but many are not) is not more complete ones; it is a nurturing of workplace relationships in which people want to do right by the clients, patients, students, and customers they serve.
 
+> Doctors prevent disease, diagnose it, treat it, and ease suffering. But exactly how they do these things is left to them to figure out— with guidelines, of course, but only guidelines. And how they interact with their patients is left for them to figure out.
+
+> Lawyers serve their clients, but how they do that—when and how they counsel, when and how they advocate —is up to them.
+
+> Teachers impart knowledge, but the best way to reach each child is left for them to judge.
+
 We may tell ourselves that all we’re doing with our incentives is taking advantage of what we know about human nature. That’s what Adam Smith would have said. But in fact, what we’re doing is changing human nature. And we’re not merely changing it; we’re impoverishing it.
