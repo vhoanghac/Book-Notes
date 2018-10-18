@@ -83,8 +83,6 @@ Rigid curriculum, become common in many school systems. Teacher's annual evaluat
 
 The most tragic consequence of this de-skilling is that it will either drive the energy, engagement, and enthusiasm out of good teachers, or it will drive these good teachers out of education.
 
-But there is another aspect of many modern work settings that may be even more destructive to good work than routinization and excessive supervision. That is the **reliance on material incentives as the principalmotivator of employees.**
-
 Carefully crafted incentive schemes, designed to ensure top performance, **can often produce the opposite—competition among employees, and efforts to game the system and look good on whatever metric is being used to assign pay and bonuses without actually producing the underlying results that the metric is meant to assess.**
 
 It seems that no matter how many times in the past we have gotten evidence that material incentives failed to produce the results we sought from practicing professionals, we turn to them again the next time we want to improve quality. System designers repeatedly fail to appreciate that when material incentives are put front and center, other values essential to motivating employees get crowded out. And it is these other values that are responsible for excellent performance.
