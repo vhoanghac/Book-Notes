@@ -79,14 +79,14 @@ Virtually every job that people do can be made meaningful by focusing on the way
 
 **People are lazy by nature.** Pay is what would motivate them to work accurately and quickly.
 
-Rigid curriculum, become common in many school systems. Teacher's annual evaluations, and even pay, are based on their students’ performance on standardized tests, and the scripted curricula are written to prepare students to pass these tests.
-
-The most tragic consequence of this de-skilling is that it will either drive the energy, engagement, and enthusiasm out of good teachers, or it will drive these good teachers out of education.
-
 Carefully crafted incentive schemes, designed to ensure top performance, **can often produce the opposite—competition among employees, and efforts to game the system and look good on whatever metric is being used to assign pay and bonuses without actually producing the underlying results that the metric is meant to assess.**
 
 It seems that no matter how many times in the past we have gotten evidence that material incentives failed to produce the results we sought from practicing professionals, we turn to them again the next time we want to improve quality. System designers repeatedly fail to appreciate that when material incentives are put front and center, other values essential to motivating employees get crowded out. And it is these other values that are responsible for excellent performance.
 
-The fine allows parents to reframe their behavior as an exchange of a fee (the “fine”) for a “service” (fifteen minutes of extra care).
-
 The offer of money leads them to ask, “Is this worth my time and effort?”.
+
+When we lose confidence that people have the will to do the right thing, and we turn to incentives, we find that we get what we pay for. (Literally)
+
+The solution to incomplete contracts (some of the job duties are specified explicitly, but many are not) is not more complete ones; it is a nurturing of workplace relationships in which people want to do right by the clients, patients, students, and customers they serve.
+
+We may tell ourselves that all we’re doing with our incentives is taking advantage of what we know about human nature. That’s what Adam Smith would have said. But in fact, what we’re doing is changing human nature. And we’re not merely changing it; we’re impoverishing it.
