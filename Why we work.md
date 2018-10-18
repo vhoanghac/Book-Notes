@@ -91,5 +91,6 @@ It seems that no matter how many times in the past we have gotten evidence that 
 
 **The little lies on the time sheets will create the habit of little lies.**
 
+The fine allows parents to reframe their behavior as an exchange of a fee (the “fine”) for a “service” (fifteen minutes of extra care).
 
-
+The offer of money leads them to ask, “Is this worth my time and effort?”.
