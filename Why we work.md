@@ -66,15 +66,6 @@ To have a job that you are happy—even eager—to do.
 - It helps if you feel that you are part of a group, with fellow workers you respect. 
 - And most important, it helps if **the work is aimed at a goal that is valuable and gives the work you do meaning and purpose.**
 
-### Turning a "Vicious Cycle" into a "Virtuous Cycle"
-
-When people find engagement and meaning in the work they do, it makes them happy to go to work. When people are happy, they work better and they work smarter.
-
-> *"When people are in states of positive emotion, they think expansively and creatively."*
-> - **Barbara Fredrickson, psychologist.**
-
-Virtually every job that people do can be made meaningful by focusing on the ways in which it improves the lives of customers, as long as it’s done right and done well.
-
 ## Chapter 3: How Good Work Goes Bad: Rules and Incentives over Integrity
 
 **People are lazy by nature.** Pay is what would motivate them to work accurately and quickly.
