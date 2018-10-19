@@ -87,3 +87,8 @@ The solution to incomplete contracts (some of the job duties are specified expli
 > Teachers impart knowledge, but the best way to reach each child is left for them to judge.
 
 We may tell ourselves that all we’re doing with our incentives is taking advantage of what we know about human nature. That’s what Adam Smith would have said. But **in fact, what we’re doing is changing human nature. And we’re not merely changing it; we’re impoverishing it.**
+
+## Chapter 4: The Technology of Ideas
+
+The point of theories in science is to organize and explain the facts. Facts without organizing theories are close to useless. But theories must ultimately be accountable to, and conform to, the facts. And new facts force us to modify or discard inadequate theories. **That’s the ideal. But in real life, things don’t always work out this way.**
+
