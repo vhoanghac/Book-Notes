@@ -92,3 +92,8 @@ We may tell ourselves that all we’re doing with our incentives is taking advan
 
 The point of theories in science is to organize and explain the facts. Facts without organizing theories are close to useless. But theories must ultimately be accountable to, and conform to, the facts. And new facts force us to modify or discard inadequate theories. **That’s the ideal. But in real life, things don’t always work out this way.**
 
+In the social sciences, proposing theories, rather than being beholden to facts, can shape facts in a way that strengthens the theories. 
+
+*Fun fact: Myriad Genetics Corporation, Utah, discovered BRCA1 and BRCA2 DNA, which predisposes women to breast and ovarian cancer, they patented their discovery. This patenting was met with court challenges that it survived until it was struck down by the Supreme Court in June 2013. Natural products, natural phenomena, and laws of nature could not be patented, unless some kind of “inventive” step gave them “markedly different characteristics from any found in nature.”* 
+
+The ideas that Keynes is talking about are ideas about human nature—about what people care about, and what they aspire to. And like fish that don’t know they live in water, we live with such ideas about human nature that are so pervasive that we don’t even realize there’s another way to look at ourselves.
