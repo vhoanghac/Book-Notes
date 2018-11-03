@@ -10,15 +10,9 @@
 >
 > **That's financial freedom.**
 
-**You have to make the shift from being a consumer in the economy to becoming an owner - and you do it by becoming an investor.**
-
-One reason people succeed is that they have knowledge other people don't.
+**One reason people succeed is that they have knowledge other people don't.**
 
 Chasing returns never works, nobody beats the market long-term, the vast majority of financial experts don't have a legal responsibility to serve your best interests. The returns advertised by mutual funds are not the returns you actually earn. 
-
-> "There is no friend as loyal as a book."
->
-> **-Ernest Hemingway**
 
 > "There is a time in every man's education when he arrives at the conviction that envy is ignorance; that imitation is suicide; that he must take himself for better, for worse, as his portion."
 >
@@ -37,4 +31,20 @@ Chasing returns never works, nobody beats the market long-term, the vast majorit
 Anticipation is the ultimate power. Losers react; leaders anticipate.
 
 No matter where you live, if you don't have another source of income, you could end up the best-dressed greeter at Wal-Mart.
+
+Whether or not we think we make good financial decisions, or poor ones, we assume we're in control of the dicisions we do make. Science would suggest we're not.
+
+> "If you know your limitations, you can adapt and succeed. If you don't know them, you're going to get hurt.
+>
+> **-Ray Dalio**
+
+1. Section 1: You'll learn how, with even the smallest amount of money combined with the miracle power of compounding, you can absolutely become financially independent in your life without ever having to make a fortune in annual income. Deciding on a portion of your income to save and invest for compounded interest.
+2. Section 2: Understanding fees.
+3. Section 3: Explore your financial dreams, and set some realistic goals. You'll figure out what you really want.
+4. Section 4: Where you put your money and in what proportions? Asset allocation. Learn how to stay wealthy.
+5. Section 5: Create a lifetime income plan.
+6. Section 6: Invest like the 0.001%: the billionaire's playbook
+7. Section 7: Sharing with others not only gives you a greater quality of life but also brings you a greater experience of joy.
+
+### Chapter 1.3: Make the most important financial decision of your life
 
