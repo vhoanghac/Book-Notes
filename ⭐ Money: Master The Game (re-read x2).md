@@ -48,3 +48,15 @@ Whether or not we think we make good financial decisions, or poor ones, we assum
 
 ### Chapter 1.3: Make the most important financial decision of your life
 
+The majority of investors fail to take full advantage of the incredible power of compounding - the multiplying power of growth times growth.
+
+> "Before you speak, listen. Before you write, think. Before you spend, earn. Before you invest, investigate. Before you criticize, wait. Before you pray, forgive. Before you quit, try. Before you retire, save. Before you die, give.
+>
+> **-William A.Ward**
+
+**You have to move from just working for money to a world where money works for you.** We must all become investors if we want to be financially free.
+
+You're already a financial trader. You might not think of it in just this way, but if you work for a living, you're trading your time for money. It's just about the worst trade you can make. You can always get more money, but you can't get more time.
+
+The rest of your life will be determined by your decision to keep a percentage of your income today in order to always have money for yourself in your future.
+
