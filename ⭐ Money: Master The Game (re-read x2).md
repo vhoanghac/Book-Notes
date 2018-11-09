@@ -58,5 +58,5 @@ The majority of investors fail to take full advantage of the incredible power of
 
 You're already a financial trader. You might not think of it in just this way, but if you work for a living, you're trading your time for money. It's just about the worst trade you can make. You can always get more money, but you can't get more time.
 
-The rest of your life will be determined by your decision to keep a percentage of your income today in order to always have money for yourself in your future.
+**The rest of your life will be determined by your decision to keep a percentage of your income today in order to always have money for yourself in your future.**
 
