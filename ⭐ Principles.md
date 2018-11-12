@@ -37,30 +37,30 @@ It's wrong to assume either that a person in one role will be successful in anot
 
 ### 1.Embrace Reality and Deal with it.
 
-**1.1 Be a hyperrealist** 
+🔎 **1.1 Be a hyperrealist** 
 
 People who create great things aren't idle dreamers: They are totally grounded in reality.
 Dreams + Reailty + Determination = a successfull life
 
-**1.2 An accurate understanding of reality is the essential foundation for any good outcome.**
+🔎 **1.2 An accurate understanding of reality is the essential foundation for any good outcome.**
 
-**1.3 Be radically open-minded and radically transparent.**
+🔎 **1.3 Be radically open-minded and radically transparent.**
 
 The more open-minded you are, the less likely you are to deceive yourself-and the more likely it is that others will give you honest feed back.
 
 Don't let fears of what others think of you stand in your way.
 
-**1.4 Look to nature to learn how reality works.**
+🔎 **1.4 Look to nature to learn how reality works.**
 
 Most people call something bad if it is bad for them or bad for those they empathize with, ignoring the greater good.
 
 Perfection doesn't exist. If nature, or anything, were perfect it wouldn't be evolving. So rather than **getting stuck hiding our mistakes and pretending we're perfect**, it makes sense to find our imperfections and deal with them. **You will either learn valuable lessons from your mistakes and press on**, better equipped to succeed-or you won't and you will fail.
 
-**1.6 Understand nature's practical lessons.**
+🔎 **1.6 Understand nature's practical lessons.**
 
 **No pain, no gain**. While we don't like pain, everything that nature made has a purpose, so nature gave us pain for a purpose. So what is its purpose? It alerts us and helps direct us.
 
-**1.7 Pain + Reflection = Progress.**
+🔎 **1.7 Pain + Reflection = Progress.**
 
 Go to the pain rather than avoid it.
 
@@ -68,7 +68,7 @@ The quality of your life will depend on the choices you make at those painful mo
 
 **No matter what you want out of life, your ability to adapt and move quickly and efficiently through the process of personal evolution will determine your success and your happiness.**
 
-**1.9 Own your outcomes.**
+🔎 **1.9 Own your outcomes.**
 
 Life gives you so many decisions to make and so many opportunities to recover from your mistakes. There are many paths to happiness.
 
