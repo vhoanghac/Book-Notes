@@ -9,11 +9,11 @@
 
 Không thể gọi là "problem" khi mà sự việc đó không thể giải quyết được. Ví dụ: Gãy chân không thể gọi là problem vì không thể chữa nó ngay tức khắc được. Lúc này ta sẽ gọi quá trình tìm cách để làm xương liền lại là problem.
 
- ❓ Sorry, I have a problem with my car.
+ ❓ *Sorry, I have a problem with my car.*
 
- ❓ There's a problem with the Internet connection.
+ ❓ *There's a problem with the Internet connection.*
 
- ❓ What's your problem?
+ ❓ *What's your problem?*
 
 Problem đếm được, có thể sử dụng "a" problem.
 
