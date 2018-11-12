@@ -14,6 +14,8 @@ Không thể gọi là "problem" khi mà sự việc đó không thể giải qu
 
 > What's your problem?
 
+Problem đếm được, có thể sử dụng "a" problem.
+
 **Trouble**: 
 - Danh từ: Điều lo lắng, phiền muộn, sự làm phiền, sự khó chịu, khó khăn.
 - Động từ: Làm phiền, quấy rầy, làm cho lo lắng, làm khổ sở ai đó.
@@ -32,7 +34,7 @@ Làm ai đó lo lắng:
 >
 > Có gì làm bạn khó chịu (phiền lòng) vậy? Trông bạn có vẻ buồn.
 
-Trouble không đếm được. Không sử dụng a trouble.
+Trouble không đếm được. Không sử dụng "a" trouble.
 
 > Your boss is in trouble.
 >
