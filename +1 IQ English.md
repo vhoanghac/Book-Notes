@@ -47,6 +47,8 @@ Trouble không đếm được. Không sử dụng "a" trouble.
 >
 > ❓ Chuốc lấy phiền phức.
 
+➖➖➖
+
 🔎 **Kết luận:**
 
 Trouble maker customer: khách hàng gây rối.
