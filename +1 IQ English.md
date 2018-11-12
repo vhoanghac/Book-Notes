@@ -17,6 +17,8 @@ Không thể gọi là "problem" khi mà sự việc đó không thể giải qu
 
 Problem đếm được, có thể sử dụng "a" problem.
 
+➖➖➖
+
 🔎 **Trouble**: 
 - Danh từ: Điều lo lắng, phiền muộn, sự làm phiền, sự khó chịu, khó khăn.
 - Động từ: Làm phiền, quấy rầy, làm cho lo lắng, làm khổ sở ai đó.
