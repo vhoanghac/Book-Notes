@@ -4,7 +4,8 @@
 - Danh từ: cái khó giải quyết, vấn đề.
 
 Đi kèm với "solution" (giải quyết, giải pháp).
-**Problem được dùng phổ biến hơn "trouble". Problem là một sự việc gì đó tiêu cực và bạn cần phải giải quyết nó.**
+
+👉🏻 **Problem được dùng phổ biến hơn "trouble". Problem là một sự việc gì đó tiêu cực và bạn cần phải giải quyết nó.**
 
 Không thể gọi là "problem" khi mà sự việc đó không thể giải quyết được. Ví dụ: Gãy chân không thể gọi là problem vì không thể chữa nó ngay tức khắc được. Lúc này ta sẽ gọi quá trình tìm cách để làm xương liền lại là problem.
 
@@ -22,7 +23,7 @@ Problem đếm được, có thể sử dụng "a" problem.
 
 Ít liên quan tới "solution" (giải quyết, giải pháp). 
 
-**Nó thường ám chỉ cảm xúc tiêu cực khi ta gặp những chuyện không tốt, gây căng thẳng cho bản thân. Tình huống mà ta phải đối diện với cái "problem" mà ta đã gây ra.**
+👉🏻 **Nó thường ám chỉ cảm xúc tiêu cực khi ta gặp những chuyện không tốt, gây căng thẳng cho bản thân. Tình huống mà ta phải đối diện với cái "problem" mà ta đã gây ra.**
 
 > ❓ "He's never been in trouble with his teachers before."
 >
