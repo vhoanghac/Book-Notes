@@ -1,6 +1,6 @@
 # Problem, trouble.
 
-**Problem**: 
+🔎 **Problem**: 
 - Danh từ: cái khó giải quyết, vấn đề.
 
 Đi kèm với "solution" (giải quyết, giải pháp).
@@ -16,7 +16,7 @@ Không thể gọi là "problem" khi mà sự việc đó không thể giải qu
 
 Problem đếm được, có thể sử dụng "a" problem.
 
-**Trouble**: 
+🔎 **Trouble**: 
 - Danh từ: Điều lo lắng, phiền muộn, sự làm phiền, sự khó chịu, khó khăn.
 - Động từ: Làm phiền, quấy rầy, làm cho lo lắng, làm khổ sở ai đó.
 
@@ -30,17 +30,22 @@ Problem đếm được, có thể sử dụng "a" problem.
 
 
 Làm ai đó lo lắng:
-> What's troubling you? You seem upset.
+> "What's troubling you? You seem upset."
 >
 > Có gì làm bạn khó chịu (phiền lòng) vậy? Trông bạn có vẻ buồn.
 
 Trouble không đếm được. Không sử dụng "a" trouble.
 
-> Your boss is in trouble.
+> "Your boss is in trouble."
 >
-> Boss của bạn đang gặp rắc rối.
+> Boss của bạn đang gặp rắc rối/đang gặp chuyện không vui.
 
-> Even the isolation didn't trouble her.
+> "Ask for trouble."
 >
-> Ngay cả sự cô lập cũng không gây rắc rối cho cô ấy.
+> Chuốc lấy phiền phức.
 
+🔎 **Kết luận:**
+
+Trouble maker customer: khách hàng gây rối.
+
+Công ty có một "trouble maker customer", thì đó được xem là một "problem".
