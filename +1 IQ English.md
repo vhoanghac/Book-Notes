@@ -12,7 +12,7 @@ Không thể gọi là "problem" khi mà sự việc đó không thể giải qu
 
  ❓ There's a problem with the Internet connection.
 
- ❓What's your problem?
+ ❓ What's your problem?
 
 Problem đếm được, có thể sử dụng "a" problem.
 
@@ -24,25 +24,25 @@ Problem đếm được, có thể sử dụng "a" problem.
 
 **Nó thường ám chỉ cảm xúc tiêu cực khi ta gặp những chuyện không tốt, gây căng thẳng cho bản thân. Tình huống mà ta phải đối diện với cái "problem" mà ta đã gây ra.**
 
-> "He's never been in trouble with his teachers before."
+> ❓ "He's never been in trouble with his teachers before."
 >
-> Anh ấy chưa bao giờ gặp rắc rối với giáo viên của mình trước đây.
+> ❓ Anh ấy chưa bao giờ gặp rắc rối với giáo viên của mình trước đây.
 
 
 Làm ai đó lo lắng:
-> "What's troubling you? You seem upset."
+> ❓ "What's troubling you? You seem upset."
 >
-> Có gì làm bạn khó chịu (phiền lòng) vậy? Trông bạn có vẻ buồn.
+> ❓ Có gì làm bạn khó chịu (phiền lòng) vậy? Trông bạn có vẻ buồn.
 
 Trouble không đếm được. Không sử dụng "a" trouble.
 
-> "Your boss is in trouble."
+> ❓ "Your boss is in trouble."
 >
-> Boss của bạn đang gặp rắc rối/đang gặp chuyện không vui.
+> ❓ Boss của bạn đang gặp rắc rối/đang gặp chuyện không vui.
 
-> "Ask for trouble."
+> ❓ "Ask for trouble."
 >
-> Chuốc lấy phiền phức.
+> ❓ Chuốc lấy phiền phức.
 
 🔎 **Kết luận:**
 
