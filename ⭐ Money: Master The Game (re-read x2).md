@@ -12,7 +12,7 @@
 
 **One reason people succeed is that they have knowledge other people don't.**
 
-Chasing returns never works, nobody beats the market long-term, the vast majority of financial experts don't have a legal responsibility to serve your best interests. The returns advertised by mutual funds are not the returns you actually earn. 
+📈 Chasing returns never works, nobody beats the market long-term, the vast majority of financial experts don't have a legal responsibility to serve your best interests. The returns advertised by mutual funds are not the returns you actually earn. 📈 
 
 > "There is a time in every man's education when he arrives at the conviction that envy is ignorance; that imitation is suicide; that he must take himself for better, for worse, as his portion."
 >
