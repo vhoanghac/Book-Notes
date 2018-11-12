@@ -53,4 +53,4 @@ Trouble không đếm được. Không sử dụng "a" trouble.
 
 Trouble maker customer: khách hàng gây rối.
 
-Công ty có một "trouble maker customer", thì đó được xem là một "problem".
+Công ty có một "trouble maker customer", thì đó được xem là một "problem" cần phải giải quyết.
