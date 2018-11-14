@@ -54,9 +54,14 @@ The majority of investors fail to take full advantage of the incredible power of
 >
 > **-William A.Ward**
 
-**You have to move from just working for money to a world where money works for you.** We must all become investors if we want to be financially free.
-
 You're already a financial trader. You might not think of it in just this way, but if you work for a living, you're trading your time for money. It's just about the worst trade you can make. You can always get more money, but you can't get more time.
 
 💰 **The rest of your life will be determined by your decision to keep a percentage of your income today in order to always have money for yourself in your future.** 💰
+
+When things are going well, it's human nature to think they're going to contiune going well forever! But when there's a meltdown, people run for the hills. They'll give away their homes, their stocks, their businesses for next to nothing. When things are going down, we think they're going to go down forever.
+
+**A part of all I earn is mine to keep.**
+
+### Chapter 1.4: Money Mastery: It's time to break through
+
 
