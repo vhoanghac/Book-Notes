@@ -58,7 +58,7 @@ You're already a financial trader. You might not think of it in just this way, b
 
 When things are going well, it's human nature to think they're going to contiune going well forever! But when there's a meltdown, people run for the hills. They'll give away their homes, their stocks, their businesses for next to nothing. When things are going down, we think they're going to go down forever.
 
-**A part of all I earn is mine to keep.**
+💰 **A part of all I earn is mine to keep.** 💰
 
 ### Chapter 1.4: Money Mastery: It's time to break through
 
