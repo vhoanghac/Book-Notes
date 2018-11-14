@@ -48,8 +48,6 @@ Whether or not we think we make good financial decisions, or poor ones, we assum
 
 ### Chapter 1.3: Make the most important financial decision of your life
 
-The majority of investors fail to take full advantage of the incredible power of compounding - the multiplying power of growth times growth.
-
 > "Before you speak, listen. Before you write, think. Before you spend, earn. Before you invest, investigate. Before you criticize, wait. Before you pray, forgive. Before you quit, try. Before you retire, save. Before you die, give.
 >
 > **-William A.Ward**
