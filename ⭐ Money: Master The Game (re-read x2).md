@@ -20,7 +20,7 @@
 
 > "Typical money managers are not going to help you win because they don't have the skills or resources to play in the big game. If they did, you wouldn't have access to them."
 >
-> "Instead of trying to compete, you've gotta learn there is a passive way to win. There's a way to not put all your eggs in one basket. It's a system to protect yourself against all downsides, because the best investors know they're going to be wrong, no matter how smart they are."
+> "Instead of trying to compete, you've gotta learn there is a passive way to win. There's a way to not put all your eggs in one basket. It's a system to protect yourself against all downsides, because **the best investors know they're going to be wrong, no matter how smart they are.**"
 >
 > "What has been very successful for me through my whole life is to not be arrogant about knowing, but to embrace the fact that I have weaknesses; that I don't know a lot this, that, and the other thing. The more you learn, the more you realize you don't know."
 >
@@ -61,5 +61,8 @@ When things are going well, it's human nature to think they're going to contiune
 💰 **A part of all I earn is mine to keep.** 💰
 
 ### Chapter 1.4: Money Mastery: It's time to break through
+
+💰 **Money can't change who we are. All it does is magnnify our true natures.** 💰
+
 
 
