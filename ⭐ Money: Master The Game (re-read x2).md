@@ -70,5 +70,16 @@ Life is really about creating meaning. And meaning does not come from what you g
 
 ### Chapter 2.0: Break free: shattering the 9 financial myths
 
+Don't get in the game unless you know the rules. When it comes to your money, what you don't know can -and likely will- hurt you. Ignorance is not bliss. Ignorance is pain, Ignorance is struggle, Ignorance is giving your fortune away to someone who hasn't earned it.
+
+> "Risk comes from not knowing what you're doing."
+>
+> **- Warren Buffett**
+
+### Chapter 2.1: Myth 1: "Invest with us. We'll beat the market"
+
+> "The goal of the nonprofessional should not be to pick winners - neither he nor his "helpers" can do that - but should rather be to own a cross sectrion of businesses that in aggregate are bound to do well."
+>
+> **- Warren Buffett**
 
 
