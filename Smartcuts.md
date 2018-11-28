@@ -23,8 +23,6 @@ We can spend thousands of hours practicing until we master a skill, or we can co
 
 Data indicates that those who train with successful people who've "been there" tend to achieve success faster. The winning formula, it seems, is to seek out the world's best and convince them to coach us.
 
-The best mentors help students to realize that the things that really matter are not the big and obvious.
-
 >*"Most everything I've done, I've copied from someone else".*
 >
 >**- Sam Walton, founder of Walmart**
@@ -33,12 +31,10 @@ The best mentors help students to realize that the things that really matter are
 
 Experience is the name everyone gives to their mistakes.
 
-Japan: "People don't try if they think they might fail."
-
 It turns out that after you adjust for statistical margin of error, an entrepreneur who'd failed in a previous venture was not likely to do better than someone who'd never run a business in her/his life. Arcording to the study, successful entrepreneurs, on the other hand, are 50% more likely to succeed in a second venture.
 
-The uncertainty is so overwhelming that the experience that you have from a previous company doesn't seem to have a significant impact on the actual success of a (second) company.
-
 Failing in business doesn't make us better or smarter. But succeeding make us more likely to continue to succeed.
+
+People explaion their successes and failures "by attributing them to factors that will allow them to feel as good as possible about themselves."
 
 
