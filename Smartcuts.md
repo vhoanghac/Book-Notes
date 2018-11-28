@@ -35,6 +35,6 @@ It turns out that after you adjust for statistical margin of error, an entrepren
 
 Failing in business doesn't make us better or smarter. But succeeding make us more likely to continue to succeed.
 
-People explaion their successes and failures "by attributing them to factors that will allow them to feel as good as possible about themselves."
+**People explaion their successes and failures "by attributing them to factors that will allow them to feel as good as possible about themselves." The startup companies attributed their failures to external factors. On the other hand, we tend to pin our successes on internal factors.**
 
 
