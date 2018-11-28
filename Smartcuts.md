@@ -35,6 +35,15 @@ It turns out that after you adjust for statistical margin of error, an entrepren
 
 Failing in business doesn't make us better or smarter. But succeeding make us more likely to continue to succeed.
 
-**People explaion their successes and failures "by attributing them to factors that will allow them to feel as good as possible about themselves." The startup companies attributed their failures to external factors. On the other hand, we tend to pin our successes on internal factors.**
+"When interpreting their own failures, individuals tend to make external attributions, pointing to factors that are outside of their direct control, such as luck. As a result, their motivation (động lực) to exert effort (nỗ lực) on the same task in the future is reduced. 
+
+Even though an individual failure experience may contain valuable knowledge, without subsequent effort to reflect upon (suy ngẫm, suy nghĩ) that experience, the potential learning will remain untapped (ta sẽ không rút kinh nghiệm được?).
+
+Further, since individuals tend to seek knowledge about themselves in ways designed to yield flattering results, even if someone were to engage in reflection after failing, he might seek knowledge to explain away the failure."
+
+"People tend to attribute their own success to their effort and ability. Since they have control over their own eddofrt and actions, these attributions motivate them to exert effort in subsequent tasks so that they can continue improving and learning."
+
+
+
 
 
