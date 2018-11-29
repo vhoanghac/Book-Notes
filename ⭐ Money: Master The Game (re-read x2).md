@@ -68,7 +68,7 @@ Don't get in the game unless you know the rules. When it comes to your money, wh
 >
 > **- Warren Buffett**
 
-Life isn't about waitingf for the storm to pass; it's about learning to dance in the rain. It's about removeing the fear in this area of your life so you can focus on what matters most.
+Life isn't about waitingf for the storm to pass; it's about learning to dance in the rain. It's about removing the fear in this area of your life so you can focus on what matters most.
 
 ### Chapter 2.2: "Our fees? They're a small price to pay"
 ### Chapter 2.3: "Our returns? What you see is what you get"
