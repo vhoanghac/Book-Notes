@@ -50,6 +50,8 @@ When things are going well, it's human nature to think they're going to contiune
 
 Life is really about creating meaning. And meaning does not come from what you get, it comes from what you give. What you get never make you happy long term. But who you become and what you contribute will.
 
+➖➖➖➖➖➖➖➖➖➖
+
 ## Section 2: Become the insider: Know the rules before you get in the game
 
 ### Chapter 2.0: Break free: shattering the 9 financial myths
