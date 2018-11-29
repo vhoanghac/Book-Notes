@@ -70,5 +70,3 @@ Life isn't about waitingf for the storm to pass; it's about learning to dance in
 
 ### Chapter 2.2: "Our fees? They're a small price to pay"
 
-
-
