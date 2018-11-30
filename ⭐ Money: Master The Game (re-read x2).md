@@ -72,4 +72,5 @@ Life isn't about waitingf for the storm to pass; it's about learning to dance in
 
 ### Chapter 2.2: "Our fees? They're a small price to pay"
 ### Chapter 2.3: "Our returns? What you see is what you get"
+### Chapter 2.4: "I'm your broker, and I'm here to help"
 
