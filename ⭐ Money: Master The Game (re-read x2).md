@@ -54,7 +54,7 @@ Life is really about creating meaning. And meaning does not come from what you g
 
 ## Section 2: Become the insider: Know the rules before you get in the game
 
-### Chapter 2.0: Break free: shattering the 9 financial myths
+### Chapter 2.0: Break free.
 
 Don't get in the game unless you know the rules. When it comes to your money, what you don't know can -and likely will- hurt you. Ignorance is not bliss. Ignorance is pain, Ignorance is struggle, Ignorance is giving your fortune away to someone who hasn't earned it.
 
@@ -68,9 +68,15 @@ Don't get in the game unless you know the rules. When it comes to your money, wh
 >
 > **- Warren Buffett**
 
-Life isn't about waitingf for the storm to pass; it's about learning to dance in the rain. It's about removing the fear in this area of your life so you can focus on what matters most.
+Life isn't about waiting for the storm to pass; it's about learning to dance in the rain. It's about removing the fear in this area of your life so you can focus on what matters most.
 
 ### Chapter 2.2: "Our fees? They're a small price to pay"
 ### Chapter 2.3: "Our returns? What you see is what you get"
 ### Chapter 2.4: "I'm your broker, and I'm here to help"
+### Chapter 2.9: "The lies we tell ourselves"
 
+The ultimate thing that stops most of us from making significant progress in our lives is not somebody else's limitations, but rather our own limiting perceptions or beliefs.
+
+Cách nhanh nhất để có kết quả tốt nhất đó chính là tìm người nào đó giỏi về lĩnh vực bạn ddangtheo đuổi và bắt chước hành động của họ.
+
+Looking for someone who has not developed real wealth is a recipe for disaster. It simply reinforces the belief that nothing will work.
