@@ -77,6 +77,10 @@ Life isn't about waiting for the storm to pass; it's about learning to dance in 
 
 The ultimate thing that stops most of us from making significant progress in our lives is not somebody else's limitations, but rather our own limiting perceptions or beliefs.
 
-Cách nhanh nhất để có kết quả tốt nhất đó chính là tìm người nào đó giỏi về lĩnh vực bạn ddangtheo đuổi và bắt chước hành động của họ.
+Cách nhanh nhất để có kết quả tốt nhất đó chính là tìm người nào đó giỏi về lĩnh vực bạn đang theo đuổi và bắt chước hành động của họ.
 
 Looking for someone who has not developed real wealth is a recipe for disaster. It simply reinforces the belief that nothing will work.
+
+Stories control our emotions, and emotions drive all of our behavior and actions.
+
+Anyone who's become truly wealthy knows the truth - the only way to become wealthy, and stay wealthy, is to find a way to do more for others than anyone else is doing in an area that people really value.
