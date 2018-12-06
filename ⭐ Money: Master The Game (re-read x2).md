@@ -22,7 +22,7 @@
 
 ### Chapter 1.2: The 7 simple steps to financial freedom: Create an income for life
 
-Anticipation is the ultimate power. Losers react; leaders anticipate.
+**Anticipation is the ultimate power. Losers react; leaders anticipate.**
 
 No matter where you live, if you don't have another source of income, you could end up the best-dressed greeter at Wal-Mart.
 
