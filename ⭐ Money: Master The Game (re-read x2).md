@@ -76,3 +76,5 @@ Looking for someone who has not developed real wealth is a recipe for disaster. 
 Stories control our emotions, and emotions drive all of our behavior and actions.
 
 Anyone who's become truly wealthy knows the truth - the only way to become wealthy, and stay wealthy, is to find a way to do more for others than anyone else is doing in an area that people really value.
+
+We all get what we tolerate. So stop tolerating excuses within yourself, limiting beliefs of the past, of half-assed or fearful states. 
