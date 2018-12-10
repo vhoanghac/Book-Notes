@@ -62,9 +62,6 @@ Don't get in the game unless you know the rules. When it comes to your money, wh
 
 Life isn't about waiting for the storm to pass; it's about learning to dance in the rain. It's about removing the fear in this area of your life so you can focus on what matters most.
 
-### Chapter 2.2: "Our fees? They're a small price to pay"
-### Chapter 2.3: "Our returns? What you see is what you get"
-### Chapter 2.4: "I'm your broker, and I'm here to help"
 ### Chapter 2.9: "The lies we tell ourselves"
 
 The ultimate thing that stops most of us from making significant progress in our lives is not somebody else's limitations, but rather our own limiting perceptions or beliefs.
@@ -78,3 +75,13 @@ Stories control our emotions, and emotions drive all of our behavior and actions
 Anyone who's become truly wealthy knows the truth - the only way to become wealthy, and stay wealthy, is to find a way to do more for others than anyone else is doing in an area that people really value.
 
 We all get what we tolerate. So stop tolerating excuses within yourself, limiting beliefs of the past, of half-assed or fearful states. 
+
+
+➖➖➖➖➖➖➖➖➖➖
+
+## Section 3: What's the price of your dreams?
+
+Life is not about money, it's about emotion. Money itself is not the goal. Our worth is not measured by the weight of our bank accounts but, rather, by the weight of our souls.
+
+
+
