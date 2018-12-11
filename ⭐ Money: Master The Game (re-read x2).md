@@ -83,5 +83,28 @@ We all get what we tolerate. So stop tolerating excuses within yourself, limitin
 
 Life is not about money, it's about emotion. Money itself is not the goal. Our worth is not measured by the weight of our bank accounts but, rather, by the weight of our souls.
 
+### Chapter 3.1: What's the price of your dreams?
 
+Dream 1: Financial Security
 
+1. Home morgage
+2. Ultilities for home
+3. Food
+4. Transportation needs
+5. Insurance costs
+
+Dream 2: Financial Vitality
+
+1. Half of your current monthly clothing costs
+2. Half of your current monthly dining and entertainment costs
+3. Half of your current small indulgence or little luxury costs
+
+### Chapter 3.2: What's your plan?
+
+What's most important is that you be honest with yourself. No rounding up here. No bending the truth.
+
+There's no first place or last place. Life is not a competition. Often people use money and the acquisition of things to measure where they stand: nicer house, fancier car... But the truth is, we can't predict how long we'll live or the state of our health as we age. **It doesn't matter where we start. It's how we finish that count.**
+
+**When you get around people who are playing the game of life at a higher level, you either get depressed, pissed off, or inspired.**
+
+It isn't about the money. It's about choice; about freedom. It's about being able to live life on your terms, not anybody else's.
