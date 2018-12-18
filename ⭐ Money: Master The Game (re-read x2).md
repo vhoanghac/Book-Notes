@@ -108,3 +108,10 @@ There's no first place or last place. Life is not a competition. Often people us
 **When you get around people who are playing the game of life at a higher level, you either get depressed, pissed off, or inspired.**
 
 It isn't about the money. It's about choice; about freedom. It's about being able to live life on your terms, not anybody else's.
+
+### Chapter 3.3: Speed it up. Save more and invest the difference
+### Chapter 3.4: Speed it up. Earn more and invest the difference
+
+The real limitation in our earnings is never our job - it's our creativity, our focus, and our contribution.
+
+
