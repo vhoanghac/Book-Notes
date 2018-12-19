@@ -109,9 +109,13 @@ There's no first place or last place. Life is not a competition. Often people us
 
 It isn't about the money. It's about choice; about freedom. It's about being able to live life on your terms, not anybody else's.
 
-### Chapter 3.3: Speed it up. Save more and invest the difference
 ### Chapter 3.4: Speed it up. Earn more and invest the difference
 
 The real limitation in our earnings is never our job - it's our creativity, our focus, and our contribution.
+
+
+### Chapter 3.5: Reduce fees and taxes
+
+It's not what you earn that metters, it's what you keep.
 
 
