@@ -113,9 +113,8 @@ It isn't about the money. It's about choice; about freedom. It's about being abl
 
 The real limitation in our earnings is never our job - it's our creativity, our focus, and our contribution.
 
-
 ### Chapter 3.5: Reduce fees and taxes
 
-It's not what you earn that metters, it's what you keep.
+It's not what you earn that matters, it's what you keep.
 
 
