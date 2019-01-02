@@ -88,3 +88,5 @@ Một số người sử dụng **impact** thay cho affect và effect vì **impa
 Ta không thể dùng **effect** trong câu này, mặc dù nghĩa của nó cũng là sự tác động/tác dụng/hiệu quả trong tiếng Việt, nhưng **effect** chỉ dùng cho **something** chứ không phải **person**
 
 Lúc này ta phải quay lại nghĩa gốc trong tiếng Anh. Influence là năng lực/khả năng có thể ảnh hưởng lên người hay vật.
+
+Thông thường người ta dùng **impact** khi nói đến sự tác động của cái gì đó mới: như là chính sách mới, luật mới...
