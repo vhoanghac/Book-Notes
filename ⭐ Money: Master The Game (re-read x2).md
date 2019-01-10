@@ -118,3 +118,9 @@ The real limitation in our earnings is never our job - it's our creativity, our 
 It's not what you earn that matters, it's what you keep.
 
 
+➖➖➖➖➖➖➖➖➖➖
+
+## Section 4: Make the most important investment decision of your life
+
+### Chapter 4.1: Aset allocation
+
