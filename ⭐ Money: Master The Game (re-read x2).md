@@ -111,12 +111,19 @@ It isn't about the money. It's about choice; about freedom. It's about being abl
 
 ### Chapter 3.4: Speed it up. Earn more and invest the difference
 
-The real limitation in our earnings is never our job - it's our creativity, our focus, and our contribution.
+**The real limitation in our earnings is never our job - it's our creativity, our focus, and our contribution.**
 
 ### Chapter 3.5: Reduce fees and taxes
 
 It's not what you earn that matters, it's what you keep.
 
+
+**Speed It Up!**
+1. Save more and invest the difference
+2. Earn more and invest the difference
+3. Reduce fees and taxes and invest the difference
+4. Get better returns
+5. Change your lifestyle.
 
 ➖➖➖➖➖➖➖➖➖➖
 
@@ -128,4 +135,15 @@ It's not what you earn that matters, it's what you keep.
 
 When it comes to money, delusions that you're better than everybody else can kill you.
 
+### Chapter 4.3: The Dream Bucket
+
+Dream Bucket: It's where you set aside something for yourself and those you love so that all of you cn enjoy life while you're building your wealth. Your Dream Bucket is meant to excite you.
+
+### Chapter 4.4: Timing is everything?
+
+If you think you can time the markets, you're wrong. Even the best in the world can't do it every time because there will always be factors they can't predict.
+
+>"Far more money has been lost by investors preparing for corrections, or trying to anticipate corrections, than has been lost in corrections themselves."
+>
+> **Peter Lynch**
 
