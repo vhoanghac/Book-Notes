@@ -129,10 +129,6 @@ It's not what you earn that matters, it's what you keep.
 
 ## Section 4: Make the most important investment decision of your life
 
-### Chapter 4.1: Asset allocation
-
-### Chapter 4.2: Playing to win: The risk-growth bucket
-
 When it comes to money, delusions that you're better than everybody else can kill you.
 
 ### Chapter 4.3: The Dream Bucket
@@ -146,4 +142,30 @@ If you think you can time the markets, you're wrong. Even the best in the world 
 >"Far more money has been lost by investors preparing for corrections, or trying to anticipate corrections, than has been lost in corrections themselves."
 >
 > **Peter Lynch**
+
+['Buy and Hold' Is Still a Winner](https://www.wsj.com/articles/SB10001424052748703848204575608623469465624)
+
+---
+
+**Rebalancing Act**
+60%: Rish/Growth Bucket
+40$ Security Bucket.
+
+==> ??? Reblance after 6 months or a year.
+
+What do you do if you find that you're out of balance? You were 60% Risk/Growth and 40% Security, your stocks have soared, and you're now 75%/25% as a result. 
+
+In this case, your rebalancing action plan requires you to shift your regular contributions to the Risk/Growth Bucket into Security until the 25% is back up to 40%.
+
+--- 
+
+1. Asset allocation is everything! You want to diversify across asset classes, markets, and time.
+2. **You don't want to hesitate to get in the market trying to have perfect timing; instead, use dollar-cost averaging and know that volatility can be your friend**.
+3. Have a Dream Bucket that gives you emotional juice and excitement so you can experience the benefits of your investing prowess in the short term and midterm instead of just someday far in the future.
+4. Rebalancing.
+
+
+➖➖➖➖➖➖➖➖➖➖
+
+## Section 5: Upside without the downside: Create a lifetime income plan
 
