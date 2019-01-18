@@ -169,3 +169,7 @@ In this case, your rebalancing action plan requires you to shift your regular co
 
 ## Section 5: Upside without the downside: Create a lifetime income plan
 
+### Chapter 5.1: Invincible, unsinkable, unconquerable: The all seasons strategy.
+
+There is one thing we can see with absolute certainty: every investment has an ideal environment in which it flourishes. In other words, there's a season for everything.
+
