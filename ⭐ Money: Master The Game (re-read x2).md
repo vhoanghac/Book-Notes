@@ -173,3 +173,9 @@ In this case, your rebalancing action plan requires you to shift your regular co
 
 There is one thing we can see with absolute certainty: every investment has an ideal environment in which it flourishes. In other words, there's a season for everything.
 
+
+➖➖➖➖➖➖➖➖➖➖
+
+## Section 6: Meet the masters
+
+
