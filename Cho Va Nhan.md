@@ -25,3 +25,11 @@ Khi thử đặt mình vào vị trí của người khác để nhìn nhận m�
 Động lực là nguyên nhân đầu tiên thúc đẩy chúng ta phát triển năng khiếu bản thân.
 
 Trái ngược với cung cách trịch thượng nặng vẻ ra lệnh của những người chỉ biết mình là cách giao tiếp ôn hòa. Đây cũng là phong cách giao tiếp thường thấy ở những người vị tha. Do khuynh hướng tôn trọng quan điểm và mong muốn của người khác, những người này thường tự đưa ra câu hỏi thay cho câu trả lời, nói chuyện một cách dè dặt nhún nhường, thừa nhận điểm yếu thay vì phô trương thê mạnh của bản thân, tìm kiếm lời khuyên thay vì áp đặt suy nghĩ cho người khác.
+
+Đối với những người biết nghĩ cho người khác, việc bộc lộ sự hoang mang, yếu đuối không hề gây tổn hại gì. Về cơ bản, **họ không quan tâm đến cái tôi của mỉnh** cũng như không bao giờ đòi hỏi sự chắc chắn. Khi họ hỏi xin lời khuyên, thì có nghĩa là **họ thực sự mong muốn được học hỏi và tham khảo ý kiến của người khác.**
+
+Một khi cư xử quá nhún nhường và lún sâu vào nhưngz cuộc trò chuyện ôn hoà cởi mở, chúng ta dễ nảy sinh cảm giác mình bị quá mặt và bị coi là kẻ ngốc. Hậu quả là nhiều người vốn luôn nghĩ cho người khác nay lại cảm thấy kiệt sức, kéo theo hiệu quả công  việc giảm sút.
+
+**Tôi muốn nhấn mạnh một nguyên tắc suy trì lửa nhiệt ình qutan trọng cho những người luôn vì người khác: đừng bận tâm đến mức độ giúp đỡ mà hãy tập trung vào những phản hồi về sự ảnh hưởng của những hành động ấy.**
+
+
