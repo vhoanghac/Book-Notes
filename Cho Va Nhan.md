@@ -2,7 +2,7 @@
 
 Chúng ta không nên phân biệt Nhóm Cho và Nhóm Nhận dựa trên số tiền họ quyên góp ch từ thiện hay thù lao họ trả cho nhân viên. Thay vào đó, sự phân loại nên dựa trên việc phân tích thái độ và hành động của họ với mọi người xung quanh.
 
-Không ai đòi hỏi ọ phải thể hiện những sự hy sinh cao cả phi thường. Đơn giản chỉ là sự giúp đỡ tận tâm, khích lệ tinh thần, chia sẻ công lao, truyền đạt kinh nghiệm hay kết nối mọi người với nhau.
+Không ai đòi hỏi yọ phải thể hiện những sự hy sinh cao cả phi thường. Đơn giản chỉ là sự giúp đỡ tận tâm, khích lệ tinh thần, chia sẻ công lao, truyền đạt kinh nghiệm hay kết nối mọi người với nhau.
 
 Trong môi trường kỹ thuật, những người lao động kém hiệu quả nhất, năng suất thấp nhất rơi vào nhóm người sẵn sàng cho.
 
@@ -30,6 +30,8 @@ Trái ngược với cung cách trịch thượng nặng vẻ ra lệnh của nh
 
 Một khi cư xử quá nhún nhường và lún sâu vào nhưngz cuộc trò chuyện ôn hoà cởi mở, chúng ta dễ nảy sinh cảm giác mình bị quá mặt và bị coi là kẻ ngốc. Hậu quả là nhiều người vốn luôn nghĩ cho người khác nay lại cảm thấy kiệt sức, kéo theo hiệu quả công  việc giảm sút.
 
-**Tôi muốn nhấn mạnh một nguyên tắc suy trì lửa nhiệt ình qutan trọng cho những người luôn vì người khác: đừng bận tâm đến mức độ giúp đỡ mà hãy tập trung vào những phản hồi về sự ảnh hưởng của những hành động ấy.**
+**Tôi muốn nhấn mạnh một nguyên tắc suy trì lửa nhiệt tình quan trọng cho những người luôn vì người khác: đừng bận tâm đến mức độ giúp đỡ mà hãy tập trung vào những phản hồi về sự ảnh hưởng của những hành động ấy.**
+
+Kildre giải thích: "Tôi không coi đó là việc bán hàng. Tôi coi mình là mọt người chuyên cung cấp các thiết bị quang học trong ngành y tế. Công việ của tôi là giúp đỡ mọi người. Và mục đích chính của tôi là hướng dẫn và cung cấp cho khách hàng những thông tin quan trọng."
 
 
