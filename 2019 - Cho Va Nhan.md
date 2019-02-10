@@ -33,5 +33,3 @@ Một khi cư xử quá nhún nhường và lún sâu vào nhưngz cuộc trò c
 **Tôi muốn nhấn mạnh một nguyên tắc suy trì lửa nhiệt tình quan trọng cho những người luôn vì người khác: đừng bận tâm đến mức độ giúp đỡ mà hãy tập trung vào những phản hồi về sự ảnh hưởng của những hành động ấy.**
 
 Kildre giải thích: "Tôi không coi đó là việc bán hàng. Tôi coi mình là mọt người chuyên cung cấp các thiết bị quang học trong ngành y tế. Công việ của tôi là giúp đỡ mọi người. Và mục đích chính của tôi là hướng dẫn và cung cấp cho khách hàng những thông tin quan trọng."
-
-
