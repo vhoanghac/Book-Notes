@@ -6,7 +6,7 @@
 
 Whether you work or meditate, please accept that things will go wrong from time to time. Your job is not to ask for things the world can't give you. Your job is to observe. Your job is not to try to prod and push this world to make it just the way you like it to be. Your job is to understand, accept, and let it go. The more you fight your body, your mind, your family, and the world, the more collateral damage you'll cause and the more pain you'll experience.
 
-When we understand and stand back from our daily lives, we see the big picture. We see there's nothing wrong with the monastery, nothing wrong with us, nothing wrong with life. We understand that it's just the nature of the world to go "wrong" - that's what the Buddha meant by the first noble truth of suffering. You work, struggle, and strive so hard to make your life just right-to make your home, your body, and your mind just right- and it goes wrong way.
+When we understand and stand back from our daily lives, we see the big picture. We see there's nothing wrong with the monastery, nothing wrong with us, nothing wrong with life. **We understand that it's just the nature of the world to go "wrong"** - that's what the Buddha meant by the first noble truth of suffering. You work, struggle, and strive so hard to make your life just right-to make your home, your body, and your mind just right- and it goes wrong way.
 
 ### Hiểu Biết Về Khổ Là Một Động Cơ Để Tu Tập
 
@@ -25,13 +25,13 @@ Những lúc khó khăn chính là những cơ hội tuyệt vời để ngồi 
 
 When we understand, we don't just accept things, because that's not good enough either. To think, "just let it be, this is the way things are, so what!" is not the right response. There's only one natural response. It's neither trying to escape nor accepting whatever comes; It's `nibbidā`.
 
-Trying to change things ust gets you more involved in life, and acceptng things also keeps you involved. isengaging is the right response. Disengaging means you leae these things alone and you're not concerned or worried about them. By not involving yourself in what you're experiencing, you stand back from life.
+Trying to change things just gets you more involved in life, and acceptng things also keeps you involved. Disengaging is the right response. Disengaging means you leave these things alone and you're not concerned or worried about them. By not involving yourself in what you're experiencing, you stand back from life.
 
 ### "Not My Business"
 
 **Khi bạn quán xét về cuộc sống, bạn nhận ra nó hoàn toàn ngoài tầm kiểm soát. Và bất cứ thứ gì ngoài tầm kiểm soát của bạn thì đâu phải việc của bạn.** Việc của bạn không phải đi lo lắng về người khác đang làm gì hay nói gì về bạn; đó là việc của họ, đó là nghiệp (kamma) của họ, chẳng liên quan gì đến bạn.
 
-Dù người ta nói gì, ta bất cử bất động. Nếu họ khen hay chê ta, đó là việc của họ. Không cần thiết phải bị ảnh hưởng bởi lời nói của người khác, dù là nói tốt hay xấu. Khi bạn có được thái độ “Không phải việc của ta” thì bạn không bao giờ bị bực tức.
+Dù người ta nói gì, ta bất cứ bất động. Nếu họ khen hay chê ta, đó là việc của họ. Không cần thiết phải bị ảnh hưởng bởi lời nói của người khác, dù là nói tốt hay xấu. Khi bạn có được thái độ “Không phải việc của ta” thì bạn không bao giờ bị bực tức.
 
 >"Rahula, develop a mind that is like the four great elements (earth, water, fire and air) because if you do this, pleasant or unpleasant sensory impressions that have arisen and taken hold of the mind will not persist. 
 >
