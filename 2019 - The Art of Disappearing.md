@@ -31,7 +31,7 @@ Trying to change things just gets you more involved in life, and acceptng things
 
 **Khi bạn quán xét về cuộc sống, bạn nhận ra nó hoàn toàn ngoài tầm kiểm soát. Và bất cứ thứ gì ngoài tầm kiểm soát của bạn thì đâu phải việc của bạn.** Việc của bạn không phải đi lo lắng về người khác đang làm gì hay nói gì về bạn; đó là việc của họ, đó là nghiệp (kamma) của họ, chẳng liên quan gì đến bạn.
 
-Dù người ta nói gì, ta bất cứ bất động. Nếu họ khen hay chê ta, đó là việc của họ. Không cần thiết phải bị ảnh hưởng bởi lời nói của người khác, dù là nói tốt hay xấu. Khi bạn có được thái độ “Không phải việc của ta” thì bạn không bao giờ bị bực tức.
+Dù người ta nói gì, ta bất cứ bất động. Nếu họ khen hay chê ta, đó là việc của họ. Không cần thiết phải bị ảnh hưởng bởi lời nói của người khác, dù là nói tốt hay xấu. Khi bạn có được thái độ “Không phải việc của ta” thì bạn sẽ không còn phải bận tâm.
 
 >"Rahula, develop a mind that is like the four great elements (earth, water, fire and air) because if you do this, pleasant or unpleasant sensory impressions that have arisen and taken hold of the mind will not persist. 
 >
