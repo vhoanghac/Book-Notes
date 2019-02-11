@@ -27,7 +27,7 @@ When we understand, we don't just accept things, because that's not good enough 
 
 Trying to change things ust gets you more involved in life, and acceptng things also keeps you involved. isengaging is the right response. Disengaging means you leae these things alone and you're not concerned or worried about them. By not involving yourself in what you're experiencing, you stand back from life.
 
-#### "Not My Business"
+### "Not My Business"
 
 **Khi bạn quán xét về cuộc sống, bạn nhận ra nó hoàn toàn ngoài tầm kiểm soát. Và bất cứ thứ gì ngoài tầm kiểm soát của bạn thì đâu phải việc của bạn.** Việc của bạn không phải đi lo lắng về người khác đang làm gì hay nói gì về bạn; đó là việc của họ, đó là nghiệp (kamma) của họ, chẳng liên quan gì đến bạn.
 
