@@ -21,3 +21,8 @@ By careful observation, you can monitor the mistakes of others and not make them
 
 It is important not to let a day go by without learning the meaning of an unfamiliar word, without a new insight, without experiencing a fresh taste, thought, or sensation. Those who are going to get ahead, who will achieve success, will refuse to waste
 their moments on that bus. They will study. They will read or write. They will use their time, to and from school or work, for self-improvement, production, and continued learning.
+
+Successful people seek advice more often than they give it. At least once a month he approached his employer and said,
+**“What can I do to improve my work?”** Again, there was a twofold benefit: While Templeton learned how to do a better job, his boss realized how sincere he was in his desire to improve..
+
+The question **“What would you do if you were me?”** is a stepping-stone toward success. By asking that question, you’ll not only get creative suggestions but other people will realize that you’re the type of person whose career course is decidedly on the upward swing.
