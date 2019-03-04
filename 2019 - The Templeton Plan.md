@@ -15,3 +15,9 @@
 
 ## Step 2: Using what you have
 
+In most cases the inheritance of wealth has done more harm than good. It tends to give people false values and causes them to show personal pride without having earned that pride. It causes people to take the edge off their efforts.
+
+By careful observation, you can monitor the mistakes of others and not make them yourself. Listening intelligently is a key to success, because you are storing up the wisdom and the folly of others and beginning to discriminate between the two.
+
+It is important not to let a day go by without learning the meaning of an unfamiliar word, without a new insight, without experiencing a fresh taste, thought, or sensation. Those who are going to get ahead, who will achieve success, will refuse to waste
+their moments on that bus. They will study. They will read or write. They will use their time, to and from school or work, for self-improvement, production, and continued learning.
