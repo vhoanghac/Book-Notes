@@ -52,3 +52,14 @@ Dù người ta nói gì, ta bất cứ bất động. Nếu họ khen hay chê 
 >Develop the perception of impermanence for by doing so, the conceit, 'I am', will be got rid of. 
 >
 >Develop mindfulness of breathing for it is of great benefit and advantage."
+
+
+### "Mấu chốt là thông hiểu"
+
+Để hành thiền, bạn không cần phải gắn Tâm vào hơi thở, không cần phải cố ý rời khỏi quá khứ và tương lai, hay cố dập tắt dòng suy nghĩ. Bạn chỉ cần định Tâm trước bể khổ và hiểu nó ngay bây giờ, thông qua bất kỳ điều gì bạn đang trải nghiệm. Nhờ thông hiểu, bạn sẽ thấy thế gian biến mất.
+
+Đức Phật răn dạy chúng sinh phải hiểu thấu bể khổ. Đừng trốn chạy nó. Hãnh hành thiền, và hiểu nó thật thấu đáo đến mức nó biến mất, rồi bạn nhận ra nó không phải là việc của bạn.
+
+## 2. Hướng tâm vào hiện tại
+
+Nếu không ở trong trạng thái cô tịch và danh thời dian để đối mặt với Tâm, bạn sẽ không bao giờ nhận ra những chướng ngại nội tại ấy đã tồn tại ngay từ đầu.
