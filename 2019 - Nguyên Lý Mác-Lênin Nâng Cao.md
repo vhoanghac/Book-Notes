@@ -20,20 +20,24 @@ Tuy nhiên, C.Mác đã chỉ ra rằng trong các Công xã Ấn Độ và tron
 
 2. **Sự tách biệt tương đối về mặt kinh tế của những người sản xuất**.
 
-#### 1.2 Những ưu điểm của sản xuất hàng hóa
+➖➖➖➖➖
+
+🔵 **Những ưu điểm của sản xuất hàng hóa**
 
 - Chuyên môn hóa sản xuất làm cho năng suất lao động tăng, sản phẩm tạo ra nhiều hơn. 
 - Làm cho tính chất xã hội hóa ngày càng cao. Quy mô, tính chất tổ chức sản xuất không bị giới hạn chật hẹp. Sản xuất ngày càng được mở rộng phát triển, đáp ứng nhu cầu ngày càng tăng của xã hội.
 - Sự tác động của những quy luật giá trị, cung-cầu, cạnh tranh... buộc người sản xuất phải luôn luôn năng động, nhạy bén, tính toán, cải tiến, nâng cao năng suất, chất lượng và hiệu quả kinh tế.
 - Sản xuất hàng hóa phát triển trở thành một trong những điều kiện để nâng cao đời sống vật chất, văn hóa, tinh thần cho mọi người dân.
 
-#### 1.3 Những nhược điểm của sản xuất hàng hóa
+🔴 **Những nhược điểm của sản xuất hàng hóa**
 
 - Phân hóa những người sản xuất thành giàu - nghèo.
 - Tiềm ẩn những khả năng khủng hoảng kinh tế.
 - Chạy theo lợi nhuận cục bộ.
 - Phát sinh nhiều tệ nạn xã hội.
 - Phá hủy môi trường sinh thái.
+
+➖➖➖➖➖
 
 ### 2️⃣ HÀNG HÓA
 
