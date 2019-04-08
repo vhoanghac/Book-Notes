@@ -2,7 +2,7 @@
 
 ## Chuyên đề 1: HỌC THUYẾT GIÁ TRỊ
 
-Học thuyết giá trị là xuất phát điểm trong toàn bộ lý luận kinh tế của C.Mác. Bản chất của giá trị hàng hóa chính là hao phí lao động của người sản xuất hàng hóa kết tinh trong hàng hóa.
+*Học thuyết giá trị là xuất phát điểm trong toàn bộ lý luận kinh tế của C.Mác. Bản chất của giá trị hàng hóa chính là hao phí lao động của người sản xuất hàng hóa kết tinh trong hàng hóa.*
 
 ### 1️⃣ SẢN XUẤT HÀNG HÓA
 
@@ -37,15 +37,17 @@ Tuy nhiên, C.Mác đã chỉ ra rằng trong các Công xã Ấn Độ và tron
 
 ### 2️⃣ HÀNG HÓA
 
+*Hàng hóa là sản phẩm của lao động, có thể thỏa mãn nhu cầu nào đó của con người thông qua trao đổi, mua bán.*
+
 #### 2.1 Hai thuộc tính cơ bản của hàng hóa.
 
-🔵 **Giá trị sử dụng:**
+🔷 **Giá trị sử dụng:**
 
 Giá trị sử dụng của hàng hóa là công dụng của vật phẩm có thể thỏa mãn nhu cầu nào đó của con người. Là giá trị sử dụng mang tính chất xã hội. 
 
 Điều đó đòi hỏi người sản xuất hàng hóa phải luôn quan tâm đến nhu cầu và thị hiếu của người tiêu dùng.
 
-🔴 **Giá trị của hàng hóa:**
+🔶 **Giá trị của hàng hóa:**
 
 Giá trị của hàng hóa là hao phí lao động của người sản xuất hàng hóa kết tinh trong hàng hóa. 
 
