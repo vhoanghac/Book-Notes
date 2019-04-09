@@ -120,7 +120,7 @@ Tăng cường độ lao động giống như kéo dài thời gian lao động 
 - Tăng NSLĐ không chỉ làm số lượng sp sản xuất ra trong một đơn vị thời gian tăng lên mà còn làm cho lượng giá trị của một hàng hóa giảm xuống. 
 - Tăng CĐLĐ phụ thuộc vào thể lực của người lao động nên chỉ có giới hạn nhất định, lượng giá trị của một hàng hóa không thay đổi.
 
-3. **Lao động giản đơn, lao động phức tạp**
+🔻 **Lao động giản đơn, lao động phức tạp**
 
 - **Lao động giản đơn:** lao động mà bất kỳ một người lao động nào có sức khỏe bình thường, không cần phải trải qua đào tạo, tích lũy kinh nghiệm cũng có thể thực hiện được.
 - **Lao động phức tạp:** lao động đòi hỏi phải được đào tạo, huấn luyện thành chuyên môn lành nghề nhất định mới có thể tiến hành được.
