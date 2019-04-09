@@ -64,3 +64,63 @@ Còn giá trị trao đổi chẳng qua chỉ là hình thức biểu hiện ra 
 
 #### 2.2 Tính hai mặt của lao động sản xuất hàng hóa
 
+1. Lao động cụ thể: là lao động có ích dưới hình thức cụ thể của những nghề nghiệp chuyên môn nhất định
+
+2. Lao động trừu tượng: là lao động của người sản xuất hàng hóa khi đã gạt bỏ những hình thức cụ thể của nó, sự tiêu phí sức lao động nói chung của người sản xuất hàng hóa.
+
+**Lao động trừu tượng tạo nên giá trị của hàng hóa**
+
+⚠️ **Mâu thuẫn:**
+
+- Lao động cụ thể vận động cùng chiều với NĂNG SUẤT LAO ĐỘNG. NĂNG SUẤT LAO ĐỘNG càng cao thì giá trị sử dụng với chất lượng sử dụng càng cao.
+- Nhưng với lao động trừu tượng, hao phí sức lao động của người sản xuất hàng hóa lại vận động ngược chiều với sự phát triển của năng suất lao động.
+
+⚠️ **Mâu thuẫn giữa LĐTN và LĐXH**
+
+Biểu hiện:
+- SP do nhà sx nhỏ tạo ra có thể không phù hợp với nhu cầu của xã hội.
+- Hao phí lao động cá biệt của người sx có thể cao hơn hay thấp hơn hao phí lao động mà xã hội công nhận.
+- Mâu thuẫn giữa 2 LĐTN và LĐXH chứa đựng sx "thừa"
+
+#### 2.3 Lượng giá trị của hàng hóa và các nhân tố ảnh hưởng đến lượng giá trị hàng hóa
+
+**a. Thước đo lượng giá trị của hàng hóa là thời gian lao động xã hội cần thiết**
+
+Giá trị hàng hóa là lao động trừu tượng của người sản xuất hàng hóa kết tinh trong hàng hóa.
+
+Do đó, **lượng giá trị hàng hóa** là **lượng lao động tiêu hao để làm ra hàng hóa đó quyết định và được đo bằng đơn vị thời gian** như: ngày, giờ, tháng, năm.
+
+Theo C.Mác, lượng giá trị của hàng hóa **không phải do mức hao phí lao động cá biệt quy định**, mà nó được đo bởi thời gian lao động xã hội cần thiết.
+
+Thời gian lao động xã hội cần thiết là thời gian lao động cần thiết để sản xuất ra một hàng hóa nào đó trong những điều kiện sản xuất trung bình của xã hội.
+
+**b. Những nhân tố ảnh hưởng đến lượng giá trị hàng hóa**
+
+🔷 **Năng suất lao động**
+
+Là năng lực sản xuất của lao động. Được đo bằng số lượng sp sản xuất ra trong 1 đơn vị thời gian. Hoặc số lượng thời gian lao động hao phí để sản xuất ra một đơn vị sản phẩm.
+
+Được quy định bởi nhiều yếu tố: trình độ người lao động, mức độ phát triển khoa học kỹ thuật, quy mô, hiệu quả tư liệu sản xuất, lương thưởng...
+
+TĂNG NSLĐ là tăng năng lực sản xuất của lao động, làm cho **số lượng sản xuất ra trong 1 đv thời gian tăng lên**, hoặc **thời gian lao động cần thiết để sản xuất ra 1 đv hàng hóa giảm xuống.
+
+**Lượng giá trị (thời gian) của một đơn vị hàng hóa tỷ lệ nghịch với năng suất lao động.** ==> Giá thành giảm, chất lượng vẫn đảm bảo.
+
+Áp dụng trong tăng trưởng dài hạn vì cần có nhiều thời gian chuẩn bị máy móc, tư liệu sản xuất.
+
+🔶 **Cường độ lao động**
+
+**Cường độ lao động là khái niệm nói lên mức độ khẩn trương của lao động trong một đơn vị thời gian.** Nó cho thấy mức độ nặng nhọc hay căng thẳng của lao đọng trong một khoảng thời gian nhất định.
+
+Tăng cường độ lao động giống như kéo dài thời gian lao động để có nhiều sản phẩm hơn. Vì vậy, tăng cường độ lao động thì lượng giá trị của một đơn vị hàng hóa không thay đổi.
+
+⚠️ Tăng NSLĐ và tăng CĐLĐ đều dẫn đến số lượng sản phẩm sản xuất ra trong một đơn vị thời gian tăng lên.
+
+⚠️ **Khác nhau:**
+- Tăng NSLĐ không chỉ làm số lượng sp sản xuất ra trong một đơn vị thời gian tăng lên mà còn làm cho lượng giá trị của một hàng hóa giảm xuống. 
+- Tăng CĐLĐ phụ thuộc vào thể lực của người lao động nên chỉ có giới hạn nhất định, lượng giá trị của một hàng hóa không thay đổi.
+
+3. **Lao động giản đơn, lao động phức tạp**
+
+- **Lao động giản đơn:** lao động mà bất kỳ một người lao động nào có sức khỏe bình thường, không cần phải trải qua đào tạo, tích lũy kinh nghiệm cũng có thể thực hiện được.
+- **Lao động phức tạp:** lao động đòi hỏi phải được đào tạo, huấn luyện thành chuyên môn lành nghề nhất định mới có thể tiến hành được.
