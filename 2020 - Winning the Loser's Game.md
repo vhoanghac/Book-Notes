@@ -21,4 +21,6 @@ For all its amazing complexity, the field of investment management really has on
 
 Investment management differs from many other professions in one most unfortunate way: it is losing the struggle to put professional values and responsibilities first and business objectives second. 
 
-The sad truth is that time and again investors, both institutional and individual, buy after the best results and sell out after the worst is over. This behavior is costly to investors.8
+The sad truth is that time and again investors, both institutional and individual, buy after the best results and sell out after the worst is over. This behavior is costly to investors.
+
+Successful advisors will help each client understand the risks of investing, set realistic investment objectives, be sensible about saving and spending, select the appropriate asset classes, allocate assets wisely, and—most important—not overreact to market highs or lows. Advisors can help their clients stay the course and maintain a long-term perspective by helping them understand what each type of investment can achieve over the long haul, anticipate market price fluctuations, understand predictably disconcerting market turbulence, and be confident that over the year investment results will reward their patience and fortitude.
