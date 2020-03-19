@@ -15,3 +15,9 @@ Ellis correctly notes that investors frequently fail to maintain equity exposure
 
 Faced with information that contradicts what they believe, people tend to respond in one of two ways. Some ignore the new knowledge and hold firmly to their beliefs. Others accept the validity of the new information, factor it into their perception of reality, and put it to use. Most investment managers and most individual investors, being in a sustained state of denial, are holding on to a set of romantic beliefs developed in a long-gone era of different markets. Their romantic views of “investment opportunity” are repeatedly—and increasingly—proving to be false.
 
+## Chapter 2: THE WINNER'S GAME
+
+For all its amazing complexity, the field of investment management really has only two major parts. One is the profession: doing what is best for the returns for investment clients, and the other is the business: doing what is best for the profits of investment managers. Investment firms must be successful at both to retain the trust of clients and to maintain a viable business—and in the long run, the latter depends on the former. 
+
+Investment management differs from many other professions in one most unfortunate way: it is losing the struggle to put professional values and responsibilities first and business objectives second. 
+
