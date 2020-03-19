@@ -21,3 +21,4 @@ For all its amazing complexity, the field of investment management really has on
 
 Investment management differs from many other professions in one most unfortunate way: it is losing the struggle to put professional values and responsibilities first and business objectives second. 
 
+The sad truth is that time and again investors, both institutional and individual, buy after the best results and sell out after the worst is over. This behavior is costly to investors.8
